@@ -1,0 +1,1 @@
+pandoc -s --toc -o docs/Eutropius_Breviarium.epub src/title.txt src/Frontmatter.md src/full_latin_text.md --css styles/custom.css

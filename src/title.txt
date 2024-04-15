@@ -1,0 +1,7 @@
+---
+title: Breviarum Ab Urbe Condita
+creator:
+  - role: Author
+    text: Eutropius
+lang: Latin
+...
