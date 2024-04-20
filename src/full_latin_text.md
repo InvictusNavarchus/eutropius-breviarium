@@ -8,7 +8,7 @@ GOTHICO MAXIMO PERPETUO AUGUSTO
 
 EUTROPIUS V. C. MAGISTER MEMORIAE 
 
-Rēs Rōmānās ex voluntāte mansuetudinis tuae ab urbe conditā ad nostram memoriam, quae in negotiīs vel bellicīs vel civilibus eminebant, per ordinem temporum brevī narratione collegī, strictim additīs etiam hīs, quae in principum vita egregia extitērunt, ut tranquillitatis tuae possit mens divina laetārī prius se inlustrium virōrum facta in administrando imperiō secutam, quam cognosceret lectione. 
+Rēs Rōmānās ex voluntāte mānsuētūdinis tuae ab urbe conditā ad nostram memoriam, quae in negōtiīs vel bellicīs vel cīvīlibus ēminēbant, per ōrdinem temporum brevī nārrātiōne collēgī, strictim additīs etiam hīs, quae in prīncipum vītā ēgregia extitērunt, ut tranquillitātis tuae possit mēns dīvīna laetārī prius sē inlūstrium virōrum facta in administrandō imperiō secūtam, quam cognōsceret lēctiōne.
 
 ## Book 1: From the Founding of Rome to the Capture of the City by the Gauls, 753 – 390 BCE. The Regal Period, 753 – 509 BCE 
 
