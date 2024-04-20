@@ -499,3 +499,159 @@ Q. Caecilius L. Valerius being consuls, all cities, which were held in Bruttium 
 (2) Found in the camp of Hannibal were two hundred thousand pounds of silver, eighty of gold, the rest of the equipment was plentiful. After this contest, peace was made with the Carthaginians. Scipio returned to Rome, triumphed with great glory and began to be called Africanus from this.
 
 (3) The second Punic war came to an end after the nineteenth year, when it had begun.
+
+## Book 4: From the End of the Second Punic War to the End of the War with Jugurtha, 201 – 106 BCE 
+
+### Chapter 1: Second Macedonian War, 200 – 106 BCE 
+
+After the Punic War, the Macedonian War followed against King Philip in the five hundred and fifty-first year from the founding of the city.
+
+### Chapter 2 
+
+(1) T. Quintius Flamininus successfully waged war against Philip. Peace was given to him on these terms: that he would not wage war on the Greek states, which the Romans had defended against him, that he would return captives and deserters, that he would have only fifty ships, that he would give the rest to the Romans, that he would pay four thousand pounds of silver per year for ten years, and that he would give his son Demetrius as a hostage.
+
+(2) T. Quintius also waged war against the Lacedaemonians, defeated their leader Nabis, and accepted them into his protection on whatever terms he wished. He led the most noble hostages before his chariot in great glory, Demetrius the son of Philip and Armenes of Nabis.
+
+### Chapter 3: Syro-Aetolian War, 192 – 189 BCE 
+
+(1) After the Macedonian War, the Syrian War followed against King Antiochus under the consulship of P. Cornelius Scipio and M. Acilius Glabrio.
+
+(2) Hannibal had joined this Antiochus, leaving his homeland Carthage for fear that it would be handed over to the Romans. M. Acilius Glabrio fought well in Achaea. The king Antiochus' camp was captured in a night battle, he himself was put to flight. Because Philip had been an aid to the Romans against Antiochus, his son Demetrius was returned.
+
+### Chapter 4 
+
+(1) Under the consulship of L. Cornelius Scipio and C. Laelius, Scipio Africanus, as a legate to his brother L. Cornelius Scipio the consul, set out against Antiochus. Hannibal, who was with Antiochus, was defeated in a naval battle.
+
+(2) Afterwards, Antiochus himself was routed in a great battle by the consul Cornelius Scipio around Sipylus, near the city of Magnesia in Asia. Eumenes, the brother of King Attalus, who founded Eumeneia in Phrygia, was an aid to the Romans in that battle. Fifty thousand infantry, three cavalry were killed in that contest on the part of the king.
+
+(3) Then the king sought peace. It was given by the senate on the same terms, although he was defeated, as it had been offered before: that he would withdraw from Europe and Asia and keep himself within the Taurus, that he would provide ten thousand talents and twenty hostages, that he would hand over Hannibal, the instigator of the war. All the cities of Asia, which Antiochus had lost in the war, were given by the senate to King Eumenes, and many cities were granted to the Rhodians, who had brought aid to the Romans against King Antiochus. Scipio returned to Rome, triumphed in great glory. He himself also took the name Asiagenes in imitation of his brother, because he had conquered Asia, just as his brother was called Africanus because he had subdued Africa.
+
+### Chapter 5 
+
+(1) In the consulship of Sp. Postumius Albinus and Q. Marcius Philippus, M. Fulvius triumphed over the Aetolians.
+
+(2) Hannibal, who, after Antiochus was defeated, had fled to Prusias, king of Bithynia, for fear of being handed over to the Romans, was also sought by him through T. Quintius Flamininus. And when he was to be handed over to the Romans, he drank poison and was buried at Libyssa in the territory of the Nicomedians.
+
+### Chapter 6: Third Macedonian War, 176 – 168 BCE 
+
+(1) After the death of Philip, king of Macedonia, who had both waged war against the Romans and later brought aid to the Romans against Antiochus, his son Perseus rebelled in Macedonia with large forces prepared for war.
+
+(2) For he had as allies Cotys, king of Thrace, and Gentius by name, king of Illyricum. But the Romans had as allies Eumenes, king of Asia, Ariarathes of Cappadocia, Antiochus of Syria, Ptolemy of Egypt, Masinissa of Numidia. But Prusias of Bithynia, although he had the sister of Perseus as his wife, showed himself fair to both sides.
+
+(3) The Roman leader P. Licinius the consul was sent against him and was defeated by the king in a serious battle. Nevertheless, the Romans, although they were defeated, did not want to grant peace to the king asking for it except on these conditions, that he and his men would surrender to the Roman senate and people.
+
+(4) Soon L. Aemilius Paulus the consul was sent against him and in Illyricum C. Anicius the praetor against Gentius, but Gentius was easily defeated in one battle and soon surrendered himself. His mother and wife and two sons, also his brother, came into the power of the Romans at the same time. Thus the war was finished within thirty days, and it was announced that Gentius was defeated before it was announced that the war had begun.
+
+### Chapter 7: The Battle of Pydna, 168 BCE 
+
+(1) With Perseus, however, Aemilius Paulus the consul fought on the third day before the Nones of September and defeated him with twenty thousand of his infantry killed. The cavalry fled intact with the king. One hundred Roman soldiers were lost. All the cities of Macedonia, which the king had held, surrendered to the Romans; the king himself, when he was deserted by his friends, came into the power of Paulus.
+
+(2) But the consul Aemilius Paulus did not treat him with the honor of a defeated man. For he did not allow him to fall at his feet when he was willing, and he placed him next to himself in the seat. These laws were given by the Romans to the Macedonians and Illyrians:
+
+(3) that they would be free and would pay half of those tributes, which they had paid to the kings, so that it would appear that the Roman people fought more for equity than for greed. Therefore, in a meeting of countless peoples, Paulus announced this and fed the delegations of many nations, which had come to him, in a most magnificent banquet, saying that the same man ought to be able to win in war and to be elegant in the arrangement of a banquet.
+
+### Chapter 8: Revolt in Epirus 
+
+(1) Soon he captured seventy cities of Epirus, which were rebelling, and distributed the booty to the soldiers. He returned to Rome in great pomp in the ship of Perseus, which is said to have been of unusual size, so much so that it is said to have had sixteen rows of oars. He triumphed most magnificently in a golden chariot with his two sons standing on either side. Two sons of the king and Perseus himself, forty-five years old, were led before his chariot.
+
+(2) After him also Anicius triumphed over the Illyrians. Gentius was led before his chariot with his brother and sons. For this spectacle, kings of many nations came to Rome, among others also Attalus and Eumenes, kings of Asia, and Prusias of Bithynia. They were received with great honor and, with the permission of the senate, they placed the gifts, which they had brought, in the Capitol. Prusias also commended his son Nicomedes to the senate.
+
+### Chapter 9 
+
+In the following year L. Memmius fought well in Lusitania. Marcellus afterwards the consul conducted prosperous affairs there.
+
+### Chapter 10: Third Punic War, 149 – 146 BCE 
+
+(1) Then the third war against Carthage is undertaken, in the six hundred and second year from the founding of the city, under the consulship of L. Manlius Censorinus and M. Manilius, in the fifty-first year after the second Punic War had been concluded.
+
+(2) They set out and besieged Carthage. Against them Hasdrubal, the leader of the Carthaginians, was fighting. Famea, another leader, was in charge of the Carthaginian cavalry.
+
+(3) Scipio then, the grandson of Scipio Africanus, was serving as a tribune there. There was a great fear and reverence for him among all. For he was considered both most prepared for fighting and most wise. Therefore, through him many things were successfully carried out by the consuls and nothing more did either Hasdrubal or Famea avoid than to commit against that part of the Romans where Scipio was fighting.
+
+### Chapter 11 
+
+Around the same time, Masinissa, king of the Numidians and a friend of the Roman people for nearly sixty years, died in the ninety-seventh year of his life, leaving forty-four sons. He ordered Scipio to divide his kingdom among his sons.
+
+### Chapter 12 
+
+(1) Therefore, when Scipio's name was famous, he was made consul while still young and sent against Carthage. He captured and destroyed it. He returned the spoils found there, which Carthage had collected from the destruction of various cities, and the ornaments of the cities to the cities of Sicily, Italy, and Africa, which recognized them as their own. Thus, Carthage was destroyed in the seven hundredth year after it was founded.
+
+(2) Scipio earned the name that his grandfather had received, namely, because of his virtue, he too was called Africanus, the younger.
+
+### Chapter 13 
+
+Meanwhile, in Macedonia, a certain Pseudophilippus took up arms and defeated the Roman praetor P. Juventius, who had been sent against him, to destruction. After him, Q. Caecilius Metellus, a leader sent by the Romans against Pseudophilippus, was sent and, having killed twenty-five thousand of his men, recovered Macedonia. He also brought Pseudophilippus himself into his power.
+
+### Chapter 14: Destruction of Corinth, 146 BCE 
+
+(1) The Corinthians were also declared war, the most noble city of Greece, because of the injury to the Roman legates. This Mummius, the consul, captured and destroyed.
+
+(2) Therefore, three very famous triumphs were held at Rome at the same time: Africanus from Africa, before whose chariot Hasdrubal was led, Metellus from Macedonia, before whose chariot Andriscus, the same who was also Pseudophilippus, Mummius from Corinth, before whom bronze statues and painted tablets and other ornaments of the most famous city were carried.
+
+### Chapter 15 
+
+Again in Macedonia, Pseudoperseus, who claimed to be the son of Perseus, rebelled by gathering slaves and, having sixteen thousand armed men, was defeated by the quaestor Tremellius.
+
+### Chapter 16: Celtiberian War, 154 BCE 
+
+(1) At the same time, Metellus did great things in Celtiberia among the Spaniards. Q. Pompeius succeeded him.
+
+(2) Not much later, Q. Caepio was also sent to the same war, which a certain Viriathus was waging against the Romans in Lusitania. Out of fear of him, Viriathus was killed by his own men, after he had moved the Spaniards against the Romans for fourteen years. He was first a shepherd, then a leader of robbers, finally he stirred up such large peoples to war, that he was thought to be a champion against the Romans of Spain.
+
+(3) And when his killers sought a reward from the consul Caepio, it was answered that it had never pleased the Romans for commanders to be killed by their own soldiers.
+
+### Chapter 17: Capture of Numantia, 133 BCE 
+
+(1) Q. Pompeius, then consul, was defeated by the Numantines, who were the richest city of Spain, made an ignoble peace. After him, C. Hostilius Mancinus, consul again, made an infamous peace with the Numantines, which the people and the senate ordered to be broken and Mancinus himself to be handed over to the enemies, so that in him, whom they had as the author of the treaty, they might avenge the injury of the broken treaty.
+
+(2) After such great disgrace, by which the Roman armies had been twice subjugated by the Numantines, P. Scipio Africanus was made consul for the second time and sent to Numantia. He first corrected the corrupt and cowardly soldier by training rather than punishing, without any harshness, he brought him back to Roman discipline. He defeated Jugurtha in various battles, killed or captured his elephants, captured many of his cities. And when he was now about to put an end to the war, he was succeeded by C. Marius.
+
+### Chapter 18 
+
+At the same time, Attalus, king of Asia, brother of Eumenes, died and left the Roman people as his heir. Thus, Asia came to the Roman empire by testament.
+
+### Chapter 19 
+
+Soon after, D. Junius Brutus celebrated a great triumph over the Callaeci and Lusitanians and P. Scipio Africanus celebrated a second triumph over the Numantines fourteen years after he had celebrated the first from Africa.
+
+### Chapter 20: War with Aristonicus, 131 BCE 
+
+(1) Meanwhile, a war was stirred up in Asia by Aristonicus, the son of Eumenes, who had been conceived by a concubine. This Eumenes had been the brother of Attalus. Sent against him was P. Licinius Crassus, who had the aid of countless kings. For both Nicomedes, king of Bithynia, helped the Romans and Mithradates Ponticus, with whom there was later a very serious war, and Ariaratus Cappadox and Pylaemenes Paphlagon. However, Crassus was defeated and killed in battle. His head was offered to Aristonicus, his body was buried in Smyrna.
+
+(2) Afterwards, Perperna, a Roman consul, who was coming as successor to Crassus, having heard of the fortune of the war, hurried to Asia and, having defeated Aristonicus in battle, compelled him to surrender by famine at the city of Stratonice, to which he had fled. Aristonicus was strangled in prison by order of the senate at Rome. For he could not be triumphed over, because Perperna, returning from Pergamum to Rome, had died.
+
+### Chapter 21 
+
+L. Caecilius Metellus and T. Quintius Flamininus, consuls, Carthage in Africa was repaired by order of the senate, which now remains, twenty-two years after it had been overthrown by Scipio. Roman citizens were led there.
+
+### Chapter 22: War with Transalpine Gauls, 125 – 121 BCE 
+
+In the six hundred and twenty-seventh year from the founding of the city, C. Cassius Longinus and Sex. Domitius Calvinus, consuls, brought war to the Transalpine Gauls and killed an infinite multitude of the Arverni, then the most noble city, and their leader Bituitus, near the Rhone river. A huge booty from the torques of the Gauls was brought to Rome. Bituitus surrendered to Domitius and was led by him to Rome and both consuls celebrated a great triumph.
+
+### Chapter 23 
+
+M. Porcius Cato and Q. Marcius Rex, consuls, in the six hundred and thirty-third year from the founding of the city, a colony was led to Narbonne in Gaul and a year later, by L. Caecilius Metellus and Q. Mucius Scaevola, consuls, a triumph was celebrated over Dalmatia.
+
+### Chapter 24 
+
+From the founding of the city in the six hundred and thirty-fifth year, C. Cato, consul, waged war against the Scordisci and fought disgracefully.
+
+### Chapter 25 
+
+C. Caecilius Metellus and Cn. Carbo, consuls, two Metelli brothers on the same day, one from Sardinia, the other from Thrace, celebrated a triumph and it was announced at Rome that the Cimbri had crossed from Gaul into Italy.
+
+### Chapter 26: War with Jugurtha, 111 – 104 BCE 
+
+(1) P. Scipio Nasica and L. Calpurnius Bestia, consuls, war was brought against Jugurtha, king of the Numidians, because he had killed Adherbal and Hiempsal, the sons of Micipsa, his brothers, kings and friends of the Roman people. Sent against him was the consul Calpurnius Bestia, corrupted by the king's money, he made a most disgraceful peace with him, which was disapproved by the senate.
+
+(2) Afterwards, against the same in the following year, Sp. Postumius Albinus set out. He also fought disgracefully against the Numidians through his brother.
+
+### Chapter 27 
+
+(1) Third, Q. Caecilius Metellus, consul, was sent. He corrected the corrupt and cowardly soldier with great severity and moderation, since he did nothing bloody against anyone, he brought him back to Roman discipline. He defeated Jugurtha in various battles, killed or captured his elephants, captured many of his cities. And when he was now about to put an end to the war, he was succeeded by C. Marius.
+
+(2) He defeated both Jugurtha and Bocchus, king of Mauretania, who had begun to bring aid to Jugurtha. He himself also captured some towns of Numidia and put an end to the war by capturing Jugurtha through his quaestor Cornelius Sulla, a great man, Bocchus handing over Jugurtha, who had fought for him before.
+
+(3) By M. Junius Silanus, colleague of Q. Metellus, the Cimbri were defeated in Gaul and by Minucius Rufus in Macedonia the Scordisci and Triballi and by Servilius Caepio in Spain the Lusitanians.
+
+(4) Two triumphs were also celebrated over Jugurtha, the first by Metellus, the second by Marius. However, before Marius’ chariot, Jugurtha was led with his two sons in chains and soon strangled in prison by order of the consul.
