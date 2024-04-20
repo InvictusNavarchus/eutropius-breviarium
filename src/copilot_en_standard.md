@@ -420,8 +420,6 @@ In the consulship of L. Aemilius, huge forces of Gauls crossed the Alps. But all
 
 (3) Therefore, with the legates of Philip captured and the matter known, the Romans ordered M. Valerius Laevinus to go to Macedonia, T. Manlius Torquatus the proconsul to Sardinia. For even that [place], having been incited by Hannibal, had deserted the Romans.
 
-Here is the translation:
-
 ### Chapter 13
 
 (1) Thus, at one time, battles were being fought in four places: in Italy against Hannibal, in Spain against his brother Hasdrubal, in Macedonia against Philip, and in Sardinia against the Sardinians and another Hasdrubal of Carthage.
