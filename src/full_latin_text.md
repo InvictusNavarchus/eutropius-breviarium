@@ -512,9 +512,6 @@ Q. Caeciliō L. Valeriō cōnsulibus omnēs cīvitātēs, quae in Brittiīs ab H
 
 (3) Fīnem accēpit secundum Pūnicum bellum post annum nōnum decimum, quam coeperat. 
 
- ​
-​ 
-
 ## Book 4: From the End of the Second Punic War to the End of the War with Jugurtha, 201 – 106 BCE 
 
 ### Chapter 1: Second Macedonian War, 200 – 106 BCE 
