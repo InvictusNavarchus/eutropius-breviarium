@@ -655,3 +655,73 @@ C. Caecilius Metellus and Cn. Carbo, consuls, two Metelli brothers on the same d
 (3) By M. Junius Silanus, colleague of Q. Metellus, the Cimbri were defeated in Gaul and by Minucius Rufus in Macedonia the Scordisci and Triballi and by Servilius Caepio in Spain the Lusitanians.
 
 (4) Two triumphs were also celebrated over Jugurtha, the first by Metellus, the second by Marius. However, before Marius’ chariot, Jugurtha was led with his two sons in chains and soon strangled in prison by order of the consul.
+
+Here is the translation of the Latin text:
+
+## Book 5: From the End of the War with Jugurtha to the End of the First Civil War, 106 – 81 BCE 
+
+### Chapter 1: War with the Cimbri and Teutones, 105 – 101 BCE. Battle of Aquae Sextiae, 102 BCE 
+
+(1) While the war against Jugurtha was being waged in Numidia, the Roman consuls M. Manlius and Q. Caepio were defeated by the Cimbri, Teutones, Tugurini, and Ambrones, which were German and Gallic tribes, near the Rhone river with a huge slaughter and even lost their camp and a large part of their army.
+
+(2) There was a great fear in Rome, as great as hardly in the time of Hannibal during the Punic war, lest the Gauls come to Rome again.
+
+(3) Therefore, Marius, after the victory over Jugurtha, was made consul for the second time and the war against the Cimbri and Teutones was decreed to him. The consulship was also deferred to him for the third and fourth time, because the Cimbrian war was being prolonged.
+
+(4) But in his fourth consulship he had Q. Lutatius Catulus as a colleague. Therefore, he clashed with the Cimbri and in two battles killed two hundred thousand of the enemy, captured eighty thousand and their leader Teutobod. Because of this merit, he was made consul for the fifth time while absent.
+
+### Chapter 2: Battle of Vercellae, 101 BCE  
+
+(1) Meanwhile, the Cimbri and Teutones, whose force was still infinite, crossed over to Italy. Again, C. Marius and Q. Catulus fought against them, but more successfully on the part of Catulus.
+
+(2) For in the battle, which both fought together, one hundred and forty thousand were killed either in battle or in flight, sixty thousand were captured. Three hundred soldiers from both armies perished. Thirty-three standards were taken from the Cimbri; of these, the army of Marius brought back two, the army of Catulus thirty-one. This was the end of the war; a triumph was decreed to both.
+
+### Chapter 3: Social War, 90 – 88 BCE 
+
+(1) In the six hundred and fifty-ninth year from the founding of the city, when almost all other wars had ceased, in Italy a very serious war was started by the Picentes, Marsi, and Peligni. They, who for many years now had been obeying the Roman people, then began to assert equal freedom for themselves. This war was very destructive.
+
+(2) P. Rutilius, consul, was killed in it, Caepio, a noble youth, Porcius Cato, another consul. The leaders against the Romans for the Picentes and Marsi were T. Vettius, Hierius Asinius, T. Herennius, A. Cluentius.
+
+(3) The Romans fought well against them by C. Marius, who had been consul six times, and by Cn. Pompey, but especially by L. Cornelius Sulla, who among other excellent things so routed Cluentius, the enemy's leader, with great forces, that he lost only one of his own men.
+
+(4) This war was drawn out for four years, however, with serious disaster. Finally, in the fifth year, it came to an end through L. Cornelius Sulla, consul, who had previously in the same war done many strenuous things, but as praetor.
+
+### Chapter 4: First Mithridatic War, 88 – 84 BCE 
+
+(1) In the six hundred and second year from the founding of the city, the first civil war was stirred up in Rome, in the same year also the Mithridatic. C. Marius, consul for the sixth time, gave cause for the civil war.
+
+(2) For when Sulla, consul, about to wage war against Mithridates, who had occupied Asia and Achaia, was being sent, and he held his army in Campania for a short time, so that the remnants of the social war, about which we have spoken, which had been waged within Italy, might be removed, Marius aspired to be sent to the Mithridatic war. Because of this, Sulla, moved, came with his army to the city. There he fought against Marius and Sulpicius. He was the first to enter the city of Rome armed, killed Sulpicius, drove Marius into exile and so, having arranged for consuls for the future year Cn. Octavius and L. Cornelius Cinna, he set out for Asia.
+
+### Chapter 5: Mithridates invades Asia 
+
+(1) For Mithridates, who was king of Pontus and held Lesser Armenia and the whole Pontic sea in a circuit with the Bosporus, first wanted to expel Nicomedes, a friend of the Roman people, from Bithynia and commanded the senate that he would bring war against him because of the injuries which he had suffered. The senate responded to Mithridates, if he did that, that he himself would suffer war from the Romans.
+
+(2) Therefore, angry, he immediately occupied Cappadocia and drove Ariobarzanes, king and friend of the Roman people, from it. Soon he also invaded Bithynia and Paphlagonia, having driven out the kings from it, friends of the Roman people Pylaemenes and Nicomedes. From there he hurried to Ephesus and sent letters throughout all Asia, that wherever Roman citizens were found, they should be killed in one day.
+
+### Chapter 6: Sulla Takes Athens, 87 BCE. Battle of Chaeronea, 86 BCE 
+
+(1) Meanwhile, even the city of Athens of Achaia, was handed over to Mithridates by Aristion the Athenian. For Mithridates had already sent to Achaia his leader Archelaus with one hundred and twenty thousand horsemen and footmen, through whom also the rest of Greece was occupied. Sulla besieged Archelaus near Piraeus not far from Athens, he captured Athens itself.
+
+(2) Afterwards, having engaged in battle against Archelaus, he so defeated him, that out of one hundred and twenty thousand hardly ten were left to Archelaus, only thirteen men were killed from Sulla's army. Having learned of this battle, Mithridates sent seventy thousand select men from Asia to Archelaus, against whom Sulla again engaged. In the first battle fifteen thousand of the enemy were killed and Diogenes, the son of Archelaus; in the second all the forces of Mithridates were wiped out, Archelaus himself lay naked in the marshes for three days. Having heard of this, Mithridates ordered that peace be made with Sulla.
+
+### Chapter 7: Terms of Peace, 84 BCE. Sulla’s Return to Italy, 83 BCE 
+
+(1) Meanwhile, at that time, Sulla also conquered the Dardani, Scordisci, Dalmatians, and Maedi, he took others into his trust.
+
+(2) But when the envoys from king Mithridates, who were seeking peace, had come, Sulla responded that he would not give it otherwise, unless the king, having left those things which he had occupied, returned to his kingdom. However, afterwards both came to a conference. Peace was arranged between them, so that Sulla, hurrying to the civil war, would not have danger from the rear.
+
+(3) For while Sulla was defeating Mithridates in Achaia and Asia, Marius, who had been driven into exile, and Cornelius Cinna, one of the consuls, started a war in Italy and having entered the city of Rome killed the most noble men from the senate and consular men, proscribed many, having overthrown the house of Sulla, drove his sons and wife into exile.
+
+(4) The entire remaining senate, having fled from the city, came to Sulla in Greece praying that he would come to the aid of the fatherland. He crossed over into Italy about to wage civil war against Norbanus and Scipio the consuls. And in the first battle he fought against Norbanus not far from Capua. Then he killed six thousand of his men, captured six, lost one hundred and twenty-four of his own. From there he also turned to Scipio and before the battle took his entire army into surrender without bloodshed.
+
+### Chapter 8: Battle of Colline Gate, 82 BCE 
+
+(1) But when the consuls had been changed at Rome, Marius, the son of Marius, and Papirius Carbo had received the consulship, Sulla fought against the younger Marius and having killed fifteen thousand of his men, lost four hundred of his own. Soon he also entered the city. He pursued Marius, the son of Marius, to Praeneste and besieged him and drove him to death. Again, he had a very serious battle against Lamponius and Carinatus, leaders of the Marian party, at the Colline gate. Seventy thousand of the enemy are said to have been in that battle against Sulla. Twelve thousand surrendered to Sulla, the rest were consumed in the line of battle, in the camps, in flight by the insatiable anger of the victors.
+
+(2) Cn. also Carbo, the other consul, fled from Rimini to Sicily and there was killed by Cn. Pompey, whom Sulla, having known his industry, had put in charge of the armies when he was a young man and twenty-one years old, so that he would be considered second to Sulla.
+
+### Chapter 9 
+
+(1) Therefore, with Carbo having been killed, Pompey recovered Sicily. Having crossed over from there to Africa, he killed Domitius, the leader of the Marian party, and Hierdas, the king of Mauretania, who was bringing aid to Domitius. After these things, Sulla triumphed over Mithridates with great glory. Cn. also Pompey, because no tribute had been granted to the Romans, while he was in his twenty-fourth year, triumphed over Africa.
+
+(2) These two most disastrous wars, the Italian, which is also called the social, and the civil, which both were drawn out over ten years, consumed more than one hundred and fifty thousand men, twenty-four consular men, seven praetorian men, sixty aedilician men, almost two hundred senators.
