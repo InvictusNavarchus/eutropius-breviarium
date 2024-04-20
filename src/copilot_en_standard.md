@@ -656,8 +656,6 @@ C. Caecilius Metellus and Cn. Carbo, consuls, two Metelli brothers on the same d
 
 (4) Two triumphs were also celebrated over Jugurtha, the first by Metellus, the second by Marius. However, before Marius’ chariot, Jugurtha was led with his two sons in chains and soon strangled in prison by order of the consul.
 
-Here is the translation of the Latin text:
-
 ## Book 5: From the End of the War with Jugurtha to the End of the First Civil War, 106 – 81 BCE 
 
 ### Chapter 1: War with the Cimbri and Teutones, 105 – 101 BCE. Battle of Aquae Sextiae, 102 BCE 
@@ -725,3 +723,161 @@ Here is the translation of the Latin text:
 (1) Therefore, with Carbo having been killed, Pompey recovered Sicily. Having crossed over from there to Africa, he killed Domitius, the leader of the Marian party, and Hierdas, the king of Mauretania, who was bringing aid to Domitius. After these things, Sulla triumphed over Mithridates with great glory. Cn. also Pompey, because no tribute had been granted to the Romans, while he was in his twenty-fourth year, triumphed over Africa.
 
 (2) These two most disastrous wars, the Italian, which is also called the social, and the civil, which both were drawn out over ten years, consumed more than one hundred and fifty thousand men, twenty-four consular men, seven praetorian men, sixty aedilician men, almost two hundred senators.
+
+## Book 6: From the End of the First Civil War to the Assassination of Caesar, 81 – 44 BCE
+
+### Chapter 1: War with Sertorius, 78 – 72 BCE
+
+(1) During the consulship of M. Aemilius Lepidus and Q. Catulus, after Sulla had established the republic, new wars broke out: one in Spain, another in Pamphylia and Cilicia, a third in Macedonia, and a fourth in Dalmatia.
+
+(2) For Sertorius, who had been part of the Marian party, fearing the fate of the others who had been killed, stirred up wars in Spain. Commanders were sent against him, Q. Caecilius Metellus, the son of the one who defeated King Jugurtha, and L. Domitius the praetor. Domitius was killed by Sertorius's commander Hirtuleius. Metellus fought against Sertorius with varying success. Later, when Metellus alone was thought to be unequal to the fight, Cn. Pompey was sent to Spain.
+
+(3) Thus, with two opposing commanders, Sertorius often fought with varying fortune. Finally, in the eighth year, he was killed by his own men, and an end was put to him and the war by the young Cn. Pompey and Q. Metellus Pius, and almost all of Spain was brought under the control of the Roman people.
+
+### Chapter 2
+
+(1) Ap. Claudius was sent to Macedonia after his consulship. He had minor battles against various tribes who inhabited the province of Rhodope, and there he died of illness.
+
+(2) His successor, C. Scribonius Curio, was sent after his consulship. He defeated the Dardani and penetrated as far as the Danube, earned a triumph, and within three years put an end to the war.
+
+### Chapter 3: War with the Isaurians, 78 BCE
+
+P. Servilius, a vigorous man, was sent to Cilicia and Pamphylia after his consulship. He subdued Cilicia, besieged and captured the most famous cities of Lycia, including Phaselis, Olympus, Corycus. He also attacked the Isaurians and brought them under control, and within three years put an end to the war. He was the first of all the Romans to make a journey in Taurus. On his return, he received a triumph and earned the name Isauricus.
+
+### Chapter 4
+
+C. Cosconius was sent to Illyricum as proconsul. He subdued a large part of Dalmatia, captured Salona, and after settling the war, returned to Rome after two years.
+
+### Chapter 5
+
+(1) At the same time, the consul M. Aemilius Lepidus, colleague of Catulus, wanted to stir up a civil war; however, his movement was suppressed within one summer.
+
+(2) Thus, at one time, there were many triumphs at once: Metellus from Spain, Pompey's second from Spain, Curio's from Macedonia, Servilius's from Isauria.
+
+### Chapter 6: The Third Mithridatic War, 74 – 63 BCE
+
+(1) In the 676th year from the founding of the city, during the consulship of L. Licinius Lucullus and M. Aurelius Cotta, Nicomedes, king of Bithynia, died; and by his will, he made the Roman people his heir.
+
+(2) Mithridates, breaking the peace, wanted to invade Bithynia and Asia again. Both consuls were sent against him and had varying fortunes. Cotta was defeated by him at Chalcedon, even forced within the town and besieged.
+
+(3) But when Mithridates had moved from there to Cyzicus, in order to invade all of Asia by capturing Cyzicus, Lucullus, the other consul, met him. And, while Mithridates was lingering in the siege of Cyzicus, he himself besieged him from behind and consumed him with hunger and defeated him in many battles, finally drove him out of Byzantium, which is now Constantinople. Lucullus also crushed his commanders in a naval battle. Thus, in one winter and summer, nearly a hundred thousand of the king's men were wiped out by Lucullus.
+
+### Chapter 7: War with the Gladiators, 73 – 71 BCE
+
+(1) In the 678th year of the city of Rome, M. Licinius Lucullus, the cousin of Lucullus, who was waging war against Mithridates, took over the province of Macedonia.
+
+(2) And in Italy, a new war suddenly broke out. For seventy-four gladiators, led by Spartacus, Crixus, and Oenomaus, broke out of the school at Capua and wandering through Italy, they almost prepared a war in it, no less serious than the one Hannibal had stirred up. For after many commanders and two Roman consuls at the same time had been defeated, they gathered an army of nearly sixty thousand armed men and were defeated in Apulia by M. Licinius Crassus, the proconsul, and after many disasters in Italy, an end was put to this war in the third year.
+
+### Chapter 8
+
+(1) In the 681st year from the founding of the city, during the consulship of P. Cornelius Lentulus and Cn. Aufidius Orestes, there were only two serious wars in the Roman empire, the Mithridatic and the Macedonian. The Luculli were handling these two, L. Lucullus and M. Lucullus.
+
+(2) So L. Lucullus, after the battle of Cyzicus, in which he had defeated Mithridates, and the naval battle, in which he had crushed his commanders, pursued him and, having recovered Paphlagonia and Bithynia, even invaded his kingdom, captured Sinope and Amisus, the most famous cities of Pontus.
+
+(3) In the second battle at the city of Cabira, where Mithridates had brought huge forces from his entire kingdom, when thirty thousand of the king's elite were destroyed by five thousand Romans, Mithridates was put to flight, his camp was plundered. Lesser Armenia, which he had held, was also taken away from him.
+
+(4) However, Mithridates was received after his flight by Tigranes, king of Armenia, who was then ruling with great glory, had often defeated the Persians, had occupied Mesopotamia and Syria and part of Phoenicia.
+
+### Chapter 9: Battle of Tigranocerta, 69 BCE
+
+(1) Therefore, Lucullus, pursuing the fleeing enemy, also entered the kingdom of Tigranes, who ruled the Armenians. He captured Tigranocerta, the most famous city of the Armenian kingdom, in the region of Arzanene, defeated the king himself, who came with seven thousand five hundred cataphracts and a hundred thousand archers and armed men, having eighteen thousand soldiers, in such a way that he destroyed a large part of the Armenians. From there he went to Nisibis and also captured that city with the king's brother.
+
+(2) But those whom Lucullus had left in Pontus with part of the army, to guard the regions that had been conquered and were now Roman, acting carelessly and greedily, gave Mithridates the opportunity to invade Pontus again and so the war was renewed. A successor was sent to Lucullus, who was preparing to lead an expedition against the Persians after capturing Nisibis.
+
+### Chapter 10
+
+The other Lucullus, who was administering Macedonia, first of the Romans waged war on the Bessi and defeated them in a huge battle on Mount Haemus. He conquered the town of Uscudama, which the Bessi inhabited, on the same day he attacked it, captured Cabyle, penetrated as far as the Danube. From there he attacked many cities located above Pontus. There he overthrew Apollonia, captured Callatis, Parthenopolis, Tomis, Histrus, Burzioen, and after completing the war, he returned to Rome. However, both triumphed, Lucullus, who had fought against Mithridates, with greater glory, since he had returned as the victor of such great kingdoms.
+
+### Chapter 11
+
+(1) After the Macedonian war was completed, the Mithridatic war remaining, which the king had revived after Lucullus's departure, the Cretan war arose.
+
+(2) Q. Caecilius Metellus was sent to it, and within three years he captured the entire province and was called Creticus and triumphed from the island.
+
+(3) At this time, Libya also came under Roman rule by the will of Apion, who had been its king, in which famous cities were Berenice, Ptolemais, Cyrene.
+
+### Chapter 12: Cn. Pompey Takes Command
+
+(1) While these things were happening, pirates were infesting all the seas so much that the Romans, victorious throughout the world, were not safe in navigation alone: therefore this war was decreed to Cn. Pompey. Which he accomplished within a few months with great fortune and speed.
+
+(2) Soon the war against King Mithridates and Tigranes was also entrusted to him. Having undertaken this, he defeated Mithridates in Lesser Armenia in a night battle, plundered his camp, killed forty thousand of his men, lost only twenty from his own army and two centurions.
+
+(3) Mithridates fled with his wife and two companions. Not much later, when he was raging against his own people, he was forced to death by the sedition of his son Pharnaces among the soldiers and drank poison. Mithridates met this end. However, he died near the Bosporus, a man of great industry and counsel. He reigned for sixty years, lived for seventy-two, and waged war against the Romans for forty years.
+
+### Chapter 13
+
+Then Pompey waged war on Tigranes. He surrendered to him and came to Pompey's camp sixteen miles from Artaxata and placed his diadem, after he had fallen to Pompey's knees, in his hands. Pompey replaced it for him and treated him honorably, however, he reduced a large part of his kingdom and a large amount of money. Syria, Phoenice, Sophanene, and six thousand talents of silver were taken from him, which he would give to the Roman people, because he had waged war on the Romans without cause.
+
+### Chapter 14: Pompey Subdues Syria and Palestine, 64 BCE
+
+(1) Soon Pompey also waged war on the Albani and defeated their king Orodes three times, finally by letters and gifts he asked for and gave him pardon and peace. He also defeated the king of Iberia, Artaces, in battle and accepted him in surrender. He gave Lesser Armenia to Deiotarus, the king of Galatia, because he had been an ally in the Mithridatic war. He returned Paphlagonia to Attalus and Pylaemenes. He installed Aristarchus as king of the Colchians. Soon he defeated the Ituraeans and Arabs.
+
+(2) And when he had come to Syria, he granted freedom to the city of Seleucia, neighboring Antioch, because it had not received King Tigranes. He returned hostages to the Antiochenes. He gave some fields to the Daphnenses, so that the grove there would become more spacious, delighted by the pleasantness of the place and the abundance of waters. Then he crossed over to Judaea, took Jerusalem, the capital of the nation, in the third month with twelve thousand Jews killed, the rest accepted in good faith. After these deeds, he returned to Asia and put an end to the most ancient war.
+
+Chapter 15: Cicero Consul. Conspiracy of Catiline, 63 BCE
+
+In the consulship of M. Tullius Cicero the orator and C. Antonius, in the year from the founding of the city six hundred and eighty-nine, L. Sergius Catilina, a man of the noblest birth, but of the most depraved genius, conspired to destroy his country with some men who were famous indeed, but audacious. He was expelled from the city by Cicero. His associates, having been apprehended, were strangled in prison, by the other consul Antonius Catilina himself was defeated in battle and killed.
+
+### Chapter 16: Triumphs of Metellus and Pompey, 62 BCE
+
+In the six hundred and ninetieth year of the city, with D. Junius Silanus and L. Murena as consuls, Metellus triumphed over Crete, Pompey over the pirate and Mithridatic war. No triumphal procession was ever similar. The sons of Mithridates, the son of Tigranes and Aristobulus king of the Jews were led before his chariot; a huge amount of money was carried before and an infinite weight of gold and silver. At this time there was no serious war throughout the world.
+
+### Chapter 17: Caesar Consul, 59 BCE. Governor of Gaul, 58 – 49 BCE
+
+(1) In the year from the founding of the city six hundred and ninety-three, C. Julius Caesar, who later ruled, was made consul with L. Bibulus; Gaul and Illyricum were decreed to him with ten legions.
+
+(2) He first defeated the Helvetians, who are now called Sequani, then advancing through very serious wars he proceeded as far as the British Ocean.
+
+(3) However, he subdued almost all of Gaul in nine years, which is between the Alps, the Rhone River, the Rhine and the Ocean and extends in circumference to twice and thirty hundred thousand paces. He soon waged war on the Britons, to whom before him not even the name of the Romans was known, and having defeated them he made them tributaries having accepted hostages. He also imposed an annual tribute on Gaul in the name of four hundred sesterces, and having attacked the Germans across the Rhine he defeated them in very fierce battles. Among so many successes he fought badly three times, once in person among the Arverni and twice in Germany while absent; for his two legates Titurius and Aurunculeius were killed by ambush.
+
+### Chapter 18: Battle of Carrae; M. Liciunius Crassus slain, 53 BCE
+
+(1) Around the same time in the year from the founding of the city six hundred and ninety-seven, M. Licinius Crassus, the colleague of Cn. Pompey the Great, in his second consulship was sent against the Parthians and, when he had fought around Carrhae against omen and auspices, he was defeated by Surena, the general of King Orodes, and finally killed with his most illustrious and most excellent young son.
+
+(2) The remnants of the army were saved by C. Cassius the quaestor, who restored the lost things with such virtue with a singular spirit, that returning he defeated the Persians across the Euphrates in frequent battles.
+
+### Chapter 19: The Civil War between Caesar and Pompey, 49 – 45 BCE; Caesar Invades Italy, Pompey flees to Greece, 49 BCE
+
+(1) From here now a civil war followed, to be detested and lamented, by which besides the calamities, which happened in the battles, also the fortune of the Roman people was changed.
+
+(2) For Caesar, returning from Gaul victorious, began to demand another consulship and so, that it would be conferred on him without any doubt. He was contradicted by the consul Marcellus, by Bibulus, by Pompey, by Cato, and ordered to return to the city having dismissed his armies. Because of this injury he came against his country with an army from Ariminum, where he had gathered soldiers.
+
+(3) The consuls with Pompey and the whole senate and all the nobility fled from the city and went to Greece. In Epirus, Macedonia, Achaia the senate prepared war against Caesar under the leadership of Pompey.
+
+### Chapter 20: Caesar Crosses To Spain
+
+(1) Caesar, having entered the empty city, made himself dictator, then sought the Spains. There he overcame Pompey's strongest and bravest armies with three generals, L. Afranius, M. Petreius, M. Varro.
+
+(2) Then returning he crossed over to Greece, fought against Pompey. In the first battle he was defeated and put to flight, however, he escaped, because Pompey did not want to follow when night intervened, and Caesar said neither did Pompey know how to win and that only on that day could he have been overcome.
+
+(3) Then in Thessaly at Palaeopharsalus with huge forces drawn up on both sides they fought. Pompey's line had forty thousand foot soldiers, six hundred horsemen on the left wing, five hundred on the right, besides the auxiliaries of the whole East, all the nobility, countless senators, praetorians, consulars and those who had already been victors of great wars. Caesar in his line had not quite thirty thousand foot soldiers, a thousand horsemen.
+
+### Chapter 21: Battle of Pharsalus. Pompey is defeated, flees to Egypt, and is slain, 48 BCE
+
+(1) Never yet had Roman troops in one place nor larger nor with better generals come together, easily about to subdue the whole world, if they were led against barbarians.
+
+(2) However, a battle was fought with great contention and finally Pompey was defeated and his camp was plundered.
+
+(3) He himself, having been put to flight, sought Alexandria, so that he would receive auxiliaries from the king of Egypt, to whom a guardian had been given by the senate because of his youthful age. Who, having followed fortune more than friendship, killed Pompey, sent his head and ring to Caesar. When he saw this, Caesar is said to have shed tears, looking at the head of such a great man and once his son-in-law.
+
+### Chapter 22: Caesar Defeats Ptolemy
+
+(1) Soon Caesar came to Alexandria. Ptolemy himself also wanted to prepare traps, for which reason war was waged on the king. He was defeated and perished in the Nile and his body was found with a golden breastplate.
+
+(2) Caesar, having taken possession of Alexandria, gave the kingdom to Cleopatra, Ptolemy's sister, with whom he had had a sexual relationship. Returning from there, Caesar defeated Pharnaces, the son of Mithridates the Great, who had been an ally of Pompey in Thessaly, rebelling in Pontus and occupying many provinces of the Roman people in battle, afterwards he forced him to death.
+
+### Chapter 23: Battle of Thapsus, 46 BCE
+
+(1) From there Caesar returned to Rome and made himself consul for the third time with M. Aemilius Lepidus, who had been master of the horse to the dictator the year before. From there he set out for Africa, where infinite nobility had prepared war with Juba, king of Mauretania.
+
+(2) However, the Roman leaders were P. Cornelius Scipio from the very ancient family of Scipio Africanus (he had also been Pompey's father-in-law), M. Petreius, Q. Varus, M. Porcius Cato, L. Cornelius Faustus, the son of Sulla the dictator.
+
+(3) Against these, after many battles had been fought, Caesar was victorious. Cato, Scipio, Petreius, Juba themselves killed themselves. Faustus, the son of Sulla the former dictator, Pompey's son-in-law, was killed by Caesar.
+
+### Chapter 24: Battle of Munda, 45 BCE
+
+After a year Caesar returned to Rome and made himself consul for the fourth time and immediately set out for the Spains, where Pompey's sons, Cn. Pompey and Sextus Pompey, had prepared a huge war. Many battles were fought, the last one at the city of Munda, in which Caesar was almost defeated, so that when his men were fleeing he wanted to kill himself, lest after such great military glory he should come into the power of young men, being fifty-six years old. Finally, having rallied his men, he was victorious. The older of Pompey's sons was killed, the younger fled.
+
+### Chapter 25: Caesar Monarch, 45 BCE. Caesar Assassinated, 44 BCE
+
+From there Caesar, with civil wars settled throughout the world, returned to Rome. He began to act more arrogantly and against the custom of Roman liberty. Therefore, when he was conferring honors out of his own will, which were previously conferred by the people, and he did not rise to the senate coming to him, he did some things that were royal and almost tyrannical, a conspiracy was formed against him by sixty or more senators and Roman knights. The most prominent among the conspirators were two Brutuses from the family of Brutus, who had been the first consul in Rome and had expelled the kings, and C. Cassius and Servilius Casca. Therefore Caesar, when on the day of the senate among the others he had come to the curia, was stabbed with twenty-three wounds.
