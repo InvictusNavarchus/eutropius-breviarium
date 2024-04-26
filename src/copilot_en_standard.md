@@ -881,3 +881,195 @@ After a year Caesar returned to Rome and made himself consul for the fourth time
 ### Chapter 25: Caesar Monarch, 45 BCE. Caesar Assassinated, 44 BCE
 
 From there Caesar, with civil wars settled throughout the world, returned to Rome. He began to act more arrogantly and against the custom of Roman liberty. Therefore, when he was conferring honors out of his own will, which were previously conferred by the people, and he did not rise to the senate coming to him, he did some things that were royal and almost tyrannical, a conspiracy was formed against him by sixty or more senators and Roman knights. The most prominent among the conspirators were two Brutuses from the family of Brutus, who had been the first consul in Rome and had expelled the kings, and C. Cassius and Servilius Casca. Therefore Caesar, when on the day of the senate among the others he had come to the curia, was stabbed with twenty-three wounds.
+
+## Book 7
+
+### Chapter 1: The rise of Octavian and the Battle of Mutina, 44–43 BCE
+
+(1) In the approximately 709th year of the city, with Caesar having been killed, civil wars were renewed. For the Senate was favoring the assassins of Caesar, and Antony, the consul of the Caesarian party, was trying to oppress them with civil wars. Therefore, with the republic being disturbed, Antony, committing many crimes, was judged an enemy by the Senate.
+
+(2) Two consuls, Pansa and Hirtius, and Octavian, a young man of 18 years, the nephew of Caesar, whom he had left as his heir in his will and had ordered to bear his name, were sent to pursue him. (This is the one who was later called Augustus and gained control of affairs.) Therefore, the three leaders who had set out against Antony defeated him. However, it happened that both victorious consuls died. Therefore, the three armies obeyed the one Caesar Augustus.
+
+### Chapter 2: The Second Triumvirate, 43 BCE 
+
+(1) Antony, having been routed and having lost his army, fled to Lepidus, who had been master of the horse to Caesar and then had large forces of soldiers, by whom he was received. Soon, with Lepidus lending his aid, Caesar made peace with Antony and, as if he were going to avenge the death of his father, by whom he had been adopted through his will, he set out to Rome with his army and extorted that the consulship be given to him in his twentieth year.
+
+(2) He proscribed the Senate, began to hold the republic with Antony and Lepidus by means of arms. Through them also Cicero the orator was killed and many other nobles.
+
+### Chapter 3: The Battle of Philippi, 42 BCE 
+
+(1) Meanwhile, Brutus and Cassius, the assassins of Caesar, stirred up a huge war. For there were many armies through Macedonia and the East, which they had seized. Therefore, Caesar Octavian Augustus and M. Antony set out against them; for Lepidus had remained to defend Italy.
+
+(2) They fought against them at the city of Philippi in Macedonia. In the first battle, Antony and Caesar were defeated, however, Cassius, the leader of the nobility, died, in the second, they killed Brutus and the infinite nobility, who had waged war with them.
+
+(3) And thus the republic was divided among them, so that Augustus held Spain, Gaul, and Italy, Antony Asia, Pontus, the East.
+
+(4) But in Italy L. Antony, consul, stirred up a civil war, his brother, who had fought with Caesar against Brutus and Cassius. He was defeated and captured at the city of Perusia in Tuscany, and was not killed.
+
+### Chapter 4: War with Sextus Pompey 
+
+Meanwhile, a huge war in Sicily was stirred up by Sex. Pompey, the son of Cn. Pompey the Great, with those who had survived from the parties of Brutus and Cassius flocking to him. War was waged against Sex. Pompey by Caesar Augustus Octavian and M. Antony. Peace finally agreed.
+
+### Chapter 5 
+
+At that time, M. Agrippa conducted affairs successfully in Aquitania and L. Ventidius Bassus, invading Syria, defeated the Persians in three battles. He killed Pacorus, the son of King Orodes, on that very day, on which once Orodes, king of the Persians, had killed Crassus through the leader Surenas. This man first celebrated a most just triumph at Rome over the Parthians.
+
+### Chapter 6 
+
+(1) Meanwhile, Pompey broke the peace and, having been defeated in a naval battle, fleeing to Asia, was killed. Antony, who was holding Asia and the East, having repudiated the sister of Caesar Augustus Octavian, married Cleopatra, the queen of Egypt.
+
+(2) He also fought against the Persians. He defeated them in the first battles, however, returning, he suffered from hunger and disease and, with the Parthians pressing on him as he fled, he himself retreated as if defeated.
+
+### Chapter 7: Civil War between Augustus and Antonius. The Battle of Actium, 31 BCE 
+
+This man also stirred up a huge civil war, urged on by his wife Cleopatra, the queen of Egypt, while, with womanly desire, she hopes to reign even in the city. He was defeated by Augustus in a famous and illustrious naval battle at Actium, which place is in Epirus; from which he fled to Egypt and, with all hope lost, when everyone was going over to Augustus, he killed himself. Cleopatra admitted an asp to herself and was extinguished by its poison. Egypt was added to the Roman empire by Octavian Augustus and C. Cornelius Gallus was put in charge of it; this man was the first Roman judge that Egypt had.
+
+### Chapter 8: Imperial Government Established, 31 BCE 
+
+(1) Thus, with wars having been completed throughout the world, Octavian Augustus returned to Rome, in the twelfth year since he had been consul.
+
+(2) From then, he held the republic alone for forty-four years; for before then, he had held it for twelve years with Antony and Lepidus.
+
+(3) Thus, from the beginning of his principate up to the end, there were fifty-six years.
+
+(4) He died, however, in the seventy-sixth year by a natural death in the town of Atella in Campania. He was buried at Rome in the Field of Mars, a man, who not undeservedly for the most part was thought similar to a god. For not easily was anyone more fortunate than he in wars or more moderate in peace. In the forty-four years, in which he alone conducted the empire, he lived most civilly, most generous towards all, most faithful towards his friends, whom he raised to such great honors, that he almost equaled them to his own position.
+
+### Chapter 9: Extension of the Empire 
+
+At no time before him did the Roman state flourish more; for except for civil wars, in which he was unconquered, he added to the Roman empire Egypt, Cantabria, Dalmatia, often before conquered, but then thoroughly subdued, Pannonia, Aquitania, Illyricum, Raetia, the Vindelici and the Salassi in the Alps, all maritime cities of Pontus, among these the most noble Bosporus and Panticapaeum. He also defeated the Dacians in battles. He killed huge forces of the Germans, he also moved them themselves beyond the river Albis, which is in Barbaricum far beyond the Rhine. However, he conducted this war through Drusus, his stepson (just as through Tiberius, his other stepson, the Pannonian); in which war he transferred forty thousand captives from Germany and placed them above the bank of the Rhine in Gaul. He recovered Armenia from the Parthians. The Persians, which no one before, gave him hostages. They also returned the Roman standards, which they had taken away when Crassus was defeated.
+
+### Chapter 10: Death of Augustus, 14 CE 
+
+(1) The Scythians and Indians, to whom the name of the Romans had been unknown before, sent gifts and ambassadors to him.
+
+(2) Galatia also under this man was made a province, when before it had been a kingdom, and M. Lollius first administered it as propraetor.
+
+(3) He was of such great love even among the barbarians, that kings, friends of the Roman people, in his honor founded cities, which they would call Caesareas, just as in Mauretania by King Juba and in Palestine, which now is a most famous city.
+
+(4) Many kings also came from their kingdoms, so that they might pay their respects to him, and in Roman dress, togaed namely, they ran to his carriage or horse.
+
+(5) Dying, he was called divine. He left the republic most blessed to Tiberius his successor, who had been his stepson, soon son-in-law, finally son by adoption.
+
+### Chapter 11: Tiberius Emperor, 14 – 37 CE 
+
+(1) Tiberius conducted the empire with great sluggishness, severe cruelty, wicked greed, shameful lust. For he himself never fought, he waged wars through his legates.
+
+(2) He never sent back certain kings, whom he had called to himself through flattery, among whom Archelaus of Cappadocia, whose kingdom he also reduced into the form of a province and ordered that the greatest city be called by his name, which now is called Caesarea, when before it was called Mazaca. This man in the twenty-third year of his rule, in the seventy-eighth of his age, died with great joy of all in Campania.
+
+### Chapter 12: Caligula Emperor, 47 – 41 CE 
+
+(1) C. Caesar, known as Caligula, succeeded him. He was the stepson of Augustus and the grandson of Drusus and Tiberius himself. He was the most wicked and disastrous, who even purged the disgraces of Tiberius.
+
+(2) He waged war against the Germans and entered Suebia, but did nothing strenuous.
+
+(3) He violated his sisters, and even recognized a daughter born from one of them.
+
+(4) As he raged against everyone with great greed, lust, and cruelty, he was killed in the Palace in the twenty-ninth year of his age, the third of his reign, in the tenth month and the eighth day.
+
+### Chapter 13: Claudius Emperor, 41 – 54 CE 
+
+(1) After him was Claudius, the uncle of Caligula, the son of Drusus who has a monument at Mogontiacum, and whose grandson was Caligula. He ruled moderately, doing many things calmly and moderately, some cruelly and foolishly.
+
+(2) He waged war on Britain, which no Roman had touched since C. Caesar, and having conquered it through Cn. Sentius and A. Plautius, illustrious and noble men, he celebrated a famous triumph.
+
+(3) He also added to the Roman empire certain islands beyond Britain located in the Ocean, which are called the Orkneys; he also imposed the name Britannicus on his son.
+
+(4) However, he was so civil around certain friends that he even followed the triumphant Plautius, a noble man who had done many remarkable things in the British expedition, and walked on the left as he ascended the Capitol.
+
+(5) He lived for 64 years, reigned for 14. After his death, he was consecrated and called a god.
+
+### Chapter 14: Nero Emperor, 54 – 68 CE 
+
+(1) Nero succeeded him, very similar to his uncle Caligula, who deformed and diminished the Roman empire, with unprecedented luxury and expenses, as one who bathed in hot and cold perfumes by the example of C. Caligula, fished with golden nets, which he drew out with silken ropes. He killed an infinite part of the senate, he was an enemy to all good men.
+
+(2) Finally, he prostituted himself with such disgrace that he would both dance and sing on stage in a citharoedic or tragic costume. He committed many parricides, having killed his brother, wife, <sister,> mother. He set fire to the city of Rome, so that he could see the image of the spectacle, just as Troy had once burned.
+
+(4) In military matters, he dared nothing at all and almost lost Britain. For under him two most noble towns were captured there and overthrown. The Parthians took Armenia and sent the Roman legions under the yoke.
+
+(5) However, two provinces were made under him, Pontus Polemoniacus by the concession of King Polemon and the Alps Cottiae by the death of King Cottius.
+
+### Chapter 15 
+
+(1) Through these things, he was detested by all in the Roman world and was judged an enemy by the senate; when they sought him for punishment, which punishment was such that he would be led naked through the public, with a fork inserted into his head, beaten with rods until death, and then thrown down from a rock, he fled from the Palace and killed himself in a suburban area of his freedman, which is between the Salarian and Nomentan roads, at the fourth mile of the city.
+
+(2) He built baths in Rome, which were previously called Neronianae and are now called Alexandrianae.
+
+(3) He died in the thirty-second year of his age, the fourteenth of his reign, and in it all the family of Augustus was consumed.
+
+### Chapter 16: Galba Emperor, 68 – 69 CE 
+
+(1) Ser. Galba succeeded him, a senator of the most ancient nobility, when he was in the seventy-third year of his age, elected emperor by the Spaniards and Gauls, soon willingly accepted by the entire army.
+
+(2) For his private life had been distinguished in military and civil matters; often consul, often proconsul, frequently a leader in the most serious wars. His reign was brief and would have had good beginnings, unless he seemed more inclined to severity.
+
+(3) However, he was killed by the treachery of Otho in the seventh month of his reign. He was slain in the forum of Rome and buried in his gardens, which are on the Aurelian Way not far from the city of Rome.
+
+### Chapter 17: Otho Emperor, 69 CE 
+
+(1) Otho, after killing Galba, seized the empire, more noble on his mother's side than his father's, but neither was obscure.
+
+(2) In private life he was soft and familiar with Nero, in the empire he could not show a proof of himself.
+
+(3) For at the same times, when Otho had killed Galba, Vitellius had also been made emperor by the Germanic armies, having undertaken war against him, when he had been defeated in a light battle at Bedriacum in Italy, although he had huge forces for war, he killed himself voluntarily. When the soldiers asked him not to despair so quickly about the outcome of the war, since he was not so important that a civil war should be moved on his account, he died a voluntary death in the thirty-eighth year of his age, the ninety-fifth day of his reign.
+
+### Chapter 18: Vitellius Emperor, 69 CE 
+
+(1) Then Vitellius seized power, from a family more honored than noble. For his father, not very nobly born, had nevertheless held three ordinary consulships.
+
+(2) He ruled with much disgrace and was notable for severe cruelty, especially gluttony and voracity, as he is often reported to have feasted four or five times a day.
+
+(3) A certain dinner is most notably committed to memory, which his brother Vitellius presented to him, in which two thousand fish and seven birds are reported to have been served, over and above the other expenses.
+
+(4) He, wanting to be like Nero and even boasting about it, so that he even honored the funeral rites of Nero, which had been humbly buried, was killed by Vespasian's generals after first killing Sabinus, the brother of Emperor Vespasian, in the city, whom he burned with the Capitol.
+
+(5) However, he was killed with great disgrace: dragged through the city of Rome publicly, naked, with his hair standing on end and a sword placed under his chin, attacked by everyone he met with filth on his face and chest, finally his throat was cut and he was thrown into the Tiber, he even lacked a common burial.
+
+(6) He died in the seventh and fiftieth year of his age, the eighth month and one day of his reign.
+
+### Chapter 19: Vespasian Emperor, 69 – 79 CE 
+
+(1) Vespasian succeeded him, made emperor in Palestine, a prince indeed obscurely born, but to be compared to the best, illustrious in private life, as one who had been sent by Claudius to Germany and then to Britain, had fought with the enemy thirty-two times, added two very strong nations, twenty towns, the island of Vectis, nearest to Britain, to the Roman empire.
+
+(2) In Rome, he conducted himself most moderately in power. He was only greedier for money, so that he would not take it unjustly from anyone. Although he collected it with all the provision of diligence, he was nevertheless most generously lavish, especially to the needy. Neither before him was any prince's generosity or justice more easily discovered. Of the most placid leniency, as one who would not easily punish those accused of treason against him beyond the penalty of exile.
+
+(3) Under him, Judea was added to the Roman empire and Jerusalem, which was the most noble city of Palestine.
+
+(4) He reduced Achaia, Lycia, Rhodes, Byzantium, Samos, which had been free before that time, also Thrace, Cilicia, Commagene, which had been under friendly kings, to the form of provinces.
+
+### Chapter 20 
+
+(1) He was forgetful of offenses and enmities, he took insults from lawyers and philosophers spoken against him leniently, however, he was a diligent enforcer of military discipline.
+
+(2) He triumphed with his son Titus over Jerusalem. Through these things, he was beloved and pleasant to the senate, the people, finally to all, he died of a bowel flow in his own villa near the Sabines, being sixty-nine years old, nine years and seven days of his reign, and was counted among the gods.
+
+(3) He had such knowledge of the birth of his sons, that, when many conspiracies were made against him, which he despised with great dissimulation when they were revealed, he said in the senate either his sons would succeed him or no one.
+
+### Chapter 21: Titus Emperor, 79 – 81 CE 
+
+(1) His son Titus succeeded him, who was also called Vespasian, a man admirable in every kind of virtue, so much so that he was called "the love and delight of the human race", most eloquent, most warlike, most moderate. He pleaded cases in Latin, composed poems and tragedies in Greek.
+
+(2) In the siege of Jerusalem, serving under his father, he hit twelve defenders with twelve arrow shots. In Rome, he was of such civility in power, that he did not punish anyone at all, he dismissed those convicted of conspiracy against him or kept them in the same familiarity as before.
+
+(3) He was of such facility and liberality, that, when he denied nothing to anyone and was reproached by his friends, he replied that no one should leave the emperor sad; moreover, when one day at dinner he remembered that he had not granted anything to anyone that day, he said: "Friends, today I have lost the day."
+
+(4) He built an amphitheater in Rome and killed five thousand beasts at its dedication.
+
+### Chapter 22 
+
+(1) Through these things, loved with unusual favor, he died of disease in the same villa as his father, two years and eight months, twenty days after he was made emperor, in the forty-second year of his age.
+
+(2) Such public mourning was there when he died, that everyone mourned as if in their own bereavement. The senate, with his death announced around evening, broke into the curia at night and heaped such praises and thanks on him after he died, as much as they had never done to him alive or present. He was counted among the gods.
+
+### Chapter 23: Domitian Emperor, 81 – 96 CE 
+
+(1) Domitian soon took power, his younger brother, more like Nero or Caligula or Tiberius than his father or his brother. However, he was moderate in power in the first years, then he progressed to huge vices of lust, anger, cruelty, greed, he stirred up so much hatred in himself, that he would abolish the merits of his father and brother.
+
+(2) He killed the most noble from the senate. He was the first to order himself to be called lord and god. He allowed no statue of himself to be placed in the Capitol except gold and silver.
+
+(3) He killed his cousins. His pride was also detestable.
+
+(4) He had four expeditions, one against the Sarmatians, another against the Chatti, two against the Dacians. He celebrated a double triumph over the Dacians and Chatti, he usurped only the laurel over the Sarmatians. However, he suffered many disasters in the same wars; for in Sarmatia his legion with its leader was killed by the Dacians, Oppius Sabinus, a consular, and Cornelius Fuscus, prefect of the praetorium, were killed with large armies.
+
+(5) He also did many works in Rome, among these the Capitol and the Forum Transitorium, the Portico of the Divi, the Iseum and Serapeum and the Stadium.
+
+(6) But when he began to be hated by all because of his crimes, he was killed by a conspiracy of his own in the Palace, in the forty-fifth year of his age, the fifteenth of his reign. His funeral was carried out with great disgrace by undertakers and he was ignobly buried.
