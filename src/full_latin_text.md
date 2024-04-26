@@ -14,9 +14,9 @@ Rēs Rōmānās ex voluntāte mānsuētūdinis tuae ab urbe conditā ad nostram 
 
 ### Chapter 1: Rome Founded, 753 BCE. Romulus, 753 – 716 BCE 
 
-(1) Rōmānum imperium, quō neque ab exordiō ullum fere minus  neque incrementīs toto orbe amplius humanā potest memoriā recordari, ā Rōmulō exōrdium habet, quī Rhēae Silviae, Vestālis virginis, fīlius et, quantum putātus est, Mārtis, cum Remō frātre ūnō partū ēditus est. 
+(1) Rōmānum imperium, quō neque ab exōrdiō ūllum ferē minus neque incrēmentīs tōtō orbe amplius hūmānā potest memoriā recordārī, ā Rōmulō exōrdium habet, quī Rhēae Silviae, Vestālis virginis, fīlius et, quantum putātus est, Mārtis, cum Remō frātre ūnō partū ēditus est.
 
-(2) Is cum inter pāstōrēs latrōcinārētur, decem et octō annōs nātus urbem exiguam in Palātīnō monte cōnstituit, XI Kal. Māiās, Olympiadis sextae annō tertiō, post Trōiae excidium, ut qui plurimum minimumque tradunt, annō trecentēsimō nōnāgēsimō quārtō. 
+(2) Is cum inter pāstōrēs latrōcinārētur, decem et octo annōs nātus urbem exiguam in Palātīnō monte cōnstituit, XI Kal. Maiās, Olympiadis sextae annō tertiō, post Troiae excidium, ut quī plūrimum minimumque trādunt, annō trecentēsimō nōnāgēsimō quārtō.
 
 ### Chapter 2 
 
