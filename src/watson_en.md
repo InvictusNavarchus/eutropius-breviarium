@@ -38,15 +38,21 @@ Origin of Rome, I.----Characters and acts of the seven kings of Rome, II.----VII
 
 ### I
 
-The Roman empire, than which the memory of man can recall scarcely any one smaller in its commencement, or greater in its progress throughout the world, had its origin from Romulus; who, being the son of a vestal virgin, and, as was supposed, of Mars, was brought forth at one birth with his brother Remus. While leading a predatory life among the shepherds, he founded, when he was eighteen years of age, a small city on the Palatine Hill, on the 21st day of April, in the third year of the sixth Olympiad, and the three hundred and ninety-fourth after the destruction of Troy.[1]
+(1) The Roman empire, than which the memory of man can recall scarcely any one smaller in its commencement, or greater in its progress throughout the world, had its origin from Romulus; who, being the son of a vestal virgin, and, as was supposed, of Mars, was brought forth at one birth with his brother Remus.
+
+(2) While leading a predatory life among the shepherds, he founded, when he was eighteen years of age, a small city on the Palatine Hill, on the 21st day of April, in the third year of the sixth Olympiad, and the three hundred and ninety-fourth after the destruction of Troy.[1]
 
 ### II
 
-After founding the city, which he called Rome, from his own name, he proceeded principally as follows. He took a great number of the neighbouring inhabitants into the city; he chose a hundred of the older men, by whose advice he might manage all his affairs, and whom, from their age, he named senators. Next, as both himself and his people were in want of wives, he invited the tribes contiguous to the city to an exhibition of games, and seized upon their young women. Wars having arisen in consequence of this outrage in capturing the females, he conquered the Caeninenses, the Antemnates, the Crustumini, the Sabines, the Fidenates, and the Vejentes; all whose towns lay around the city. And since, after a tempest that suddenly arose, in the thirty-seventh year of his reign, he was no longer to be seen, he was believed to have been translated to the gods, and was accordingly deified. The senators then ruled at Rome by periods of five days; and under their government a year was passed.
+(1) After founding the city, which he called Rome, from his own name, he proceeded principally as follows. He took a great number of the neighbouring inhabitants into the city; he chose a hundred of the older men, by whose advice he might manage all his affairs, and whom, from their age, he named senators.
+
+(2) Next, as both himself and his people were in want of wives, he invited the tribes contiguous to the city to an exhibition of games, and seized upon their young women. Wars having arisen in consequence of this outrage in capturing the females, he conquered the Caeninenses, the Antemnates, the Crustumini, the Sabines, the Fidenates, and the Vejentes; all whose towns lay around the city. And since, after a tempest that suddenly arose, in the thirty-seventh year of his reign, he was no longer to be seen, he was believed to have been translated to the gods, and was accordingly deified. The senators then ruled at Rome by periods of five days; and under their government a year was passed.
 
 ### III
 
-Afterwards Numa Pompilius was elected king, who engaged indeed in no wars, but was of no less service to the state than Romulus; for he established both laws and customs among the Romans, who, by the frequency of their wars, were now regarded as robbers and semi-barbarians. He divided the year, before unregulated by any computation, into ten months, and founded numerous sacred rites and temples at Rome. He died a natural death in the forty-third year of his reign.
+(1) Afterwards Numa Pompilius was elected king, who engaged indeed in no wars, but was of no less service to the state than Romulus;
+
+(2) for he established both laws and customs among the Romans, who, by the frequency of their wars, were now regarded as robbers and semi-barbarians. He divided the year, before unregulated by any computation, into ten months, and founded numerous sacred rites and temples at Rome. He died a natural death in the forty-third year of his reign.
 
 ### IV
 
@@ -54,33 +60,49 @@ To him succeeded Tullus Hostilius, who re-commenced war. He conquered the Albans
 
 ### V
 
-After him, Ancus Martius, the grandson of Numa by a daughter, succeeded to the government. He fought against the Latins, added the Aventine and Janiculan hills to the city, and founded Ostia, a city on the sea-coast, sixteen miles from Rome. He died a natural death in the twenty-fourth year of his reign.
+(1) After him, Ancus Martius, the grandson of Numa by a daughter, succeeded to the government. 
+
+(2) He fought against the Latins, added the Aventine and Janiculan hills to the city, and founded Ostia, a city on the sea-coast, sixteen miles from Rome. He died a natural death in the twenty-fourth year of his reign.
 
 ### VI
 
-Priscus Tarquinius was next invested with the government. He doubled the number of the senators, built a Circus at Rome, and instituted the Roman games which continue even to our time. He also conquered the Sabines, and added a considerable extent of territory, which he took from that people, to the lands of Rome; he was also the first that entered the city in triumph. He built the walls and sewers, and commenced the Capitol. He was killed in the thirty-eighth year of his reign, by the sons of Ancus, the king whom he had succeeded.
+(1) Priscus Tarquinius was next invested with the government. He doubled the number of the senators, built a Circus at Rome, and instituted the Roman games which continue even to our time. He also conquered the Sabines, and added a considerable extent of territory, which he took from that people, to the lands of Rome; he was also the first that entered the city in triumph. 
+
+(2) He built the walls and sewers, and commenced the Capitol. He was killed in the thirty-eighth year of his reign, by the sons of Ancus, the king whom he had succeeded.
 
 ### VII
 
-After him Servius Tullius was placed on the throne, the son of a woman of noble origin, but who was, nevertheless, a captive and a slave. He also defeated the Sabines; annexed three hills, the Quirinal, Viminal, and Esquiline, to the city; and formed trenches round the city walls. He was the first to institute the census, which till that time was unknown throughout the world. The people being all subjected to a census during his reign, Rome was found to contain eighty-four thousand citizens, including those in the country. He was cut off in the forty-fifth year of his reign, by the criminal machinations of his son-in-law Tarquin the Proud, the son of the king to whom he had succeeded, and of his own daughter, whom Tarquin had married.
+(1) After him Servius Tullius was placed on the throne, the son of a woman of noble origin, but who was, nevertheless, a captive and a slave. He also defeated the Sabines; annexed three hills, the Quirinal, Viminal, and Esquiline, to the city; and formed trenches round the city walls. He was the first to institute the census, which till that time was unknown throughout the world. 
+
+(2) The people being all subjected to a census during his reign, Rome was found to contain eighty-four thousand citizens, including those in the country. He was cut off in the forty-fifth year of his reign, by the criminal machinations of his son-in-law Tarquin the Proud, the son of the king to whom he had succeeded, and of his own daughter, whom Tarquin had married.
 
 ### VIII
 
-Lucius Tarquinius Superbus, the seventh and last of the kings, overcame the Volsci, a nation not far from Rome, on the road to Campania; reduced the towns of Gabii and Suessa Pometia; made peace with the Tuscans; and built a temple to Jupiter in the Capitol. Afterwards, while he was besieging Ardea, a town that lay about eighteen miles from the city, he was deprived of his throne; for, as his younger son, who was also named Tarquin, offered violence to Lucretia, the wife of Collatinus, a most noble and chaste woman; and as she, after complaining to her husband, her father, and her friends, of the injury that she had suffered, slew herself in the sight of them all; Brutus, in consequence, who was a kinsman of Tarquinius,[2] excited an insurrection among the people, and deprived Tarquin of his regal authority. The army, also, which was engaged with the king in besieging Ardea, soon after deserted him; and the king himself, on going to the city, found the gates closed against him; and, after having reigned five-and-twenty years, was forced to take flight with his wife and children.
+(1) Lucius Tarquinius Superbus, the seventh and last of the kings, overcame the Volsci, a nation not far from Rome, on the road to Campania; reduced the towns of Gabii and Suessa Pometia; made peace with the Tuscans; and built a temple to Jupiter in the Capitol. Afterwards, while he was besieging Ardea, a town that lay about eighteen miles from the city, he was deprived of his throne;
 
-Thus a regal form of government continued at Rome, under seven kings, for the space of two hundred and forty-three years, while as yet the dominion of the city, where its extent was greatest, hardly reached fifteen miles.
+(2) for, as his younger son, who was also named Tarquin, offered violence to Lucretia, the wife of Collatinus, a most noble and chaste woman; and as she, after complaining to her husband, her father, and her friends, of the injury that she had suffered, slew herself in the sight of them all; Brutus, in consequence, who was a kinsman of Tarquinius,[2] excited an insurrection among the people, and deprived Tarquin of his regal authority.
+
+(3) The army, also, which was engaged with the king in besieging Ardea, soon after deserted him; and the king himself, on going to the city, found the gates closed against him; and, after having reigned five-and-twenty years, was forced to take flight with his wife and children. Thus a regal form of government continued at Rome, under seven kings, for the space of two hundred and forty-three years, while as yet the dominion of the city, where its extent was greatest, hardly reached fifteen miles.
 
 ### IX
 
-Henceforth, instead of one king, two consuls were chosen, with this view, that, if one should be disposed to act unjustly, the other, having equal authority, might exercise a control over him. It was determined also that they should not hold their office longer than a year; in order that they might not, by continued possession of power, grow too overbearing; but, knowing that in a year they would return to the level of private persons, might constantly conduct themselves with moderation.
+(1) Henceforth, instead of one king, two consuls were chosen, with this view, that, if one should be disposed to act unjustly, the other, having equal authority, might exercise a control over him.
 
-In the first year, then, after the expulsion of the king and his family, the consuls were Lucius Junius Brutus, who had been the chief agent in the banishment of Tarquin, and Tarquinius Collatinus, the husband of Lucretia. But that dignity was soon taken from Tarquinius Collatinus; for it was enacted that no one who bore the name of Tarquin should remain in the city. Having collected, therefore, all his private property, he removed from the city, and Valerius Publicola was made consul in his stead. King Tarquin, however, after his expulsion, stirred up war against Rome, and, having collected a large force from all quarters, in order that he might be reinstated on the throne, took the field.
+(2) It was determined also that they should not hold their office longer than a year; in order that they might not, by continued possession of power, grow too overbearing; but, knowing that in a year they would return to the level of private persons, might constantly conduct themselves with moderation.
+
+(3) In the first year, then, after the expulsion of the king and his family, the consuls were Lucius Junius Brutus, who had been the chief agent in the banishment of Tarquin, and Tarquinius Collatinus, the husband of Lucretia.
+
+(4) But that dignity was soon taken from Tarquinius Collatinus; for it was enacted that no one who bore the name of Tarquin should remain in the city. Having collected, therefore, all his private property, he removed from the city, and Valerius Publicola was made consul in his stead.
+
+(5) King Tarquin, however, after his expulsion, stirred up war against Rome, and, having collected a large force from all quarters, in order that he might be reinstated on the throne, took the field.
 
 ### X
 
-In the first encounter, Brutus and Aruns, Tarquin's son, killed each other; but the Romans left the field conquerors. The Roman matrons mourned for Brutus, the guardian of their honour, as if he had been their common father, for the space of a year. Valerius Publicola fixed upon Spurius Lucretius Tricipitinus, the father of Lucretia, for his colleague; and he dying of some disease, he next chose Horatius Pulvillus for his fellow consul.
+(1) In the first encounter, Brutus and Aruns, Tarquin's son, killed each other; but the Romans left the field conquerors.
 
-Thus the first year had five consuls; Tarquinius Collatinus having left the city on account of his name, Brutus having fallen in battle, and Spurius Lucretius having died a natural death.
+(2) The Roman matrons mourned for Brutus, the guardian of their honour, as if he had been their common father, for the space of a year. Valerius Publicola fixed upon Spurius Lucretius Tricipitinus, the father of Lucretia, for his colleague; and he dying of some disease, he next chose Horatius Pulvillus for his fellow consul.
+
+(3) Thus the first year had five consuls; Tarquinius Collatinus having left the city on account of his name, Brutus having fallen in battle, and Spurius Lucretius having died a natural death.
 
 ### XI
 
