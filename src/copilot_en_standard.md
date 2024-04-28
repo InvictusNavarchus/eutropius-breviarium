@@ -72,6 +72,14 @@ War with Tarquinius
 
 (5) Nevertheless, Tarquin, the deposed king, stirred up war against Rome. He gathered many nations to restore him to power.
 
+### Chapter 10
+
+(1) In the first battle, Consul Brutus and Arruns, son of Tarquinius, killed each other, however, the Romans withdrew victorious from that battle.
+
+(2) The Roman matrons mourned Brutus, the defender of their chastity, like a common father for a year. Valerius Publicola made Sp. Lucretius Tricipitinus, father of Lucretia, his colleague, who, having died from disease, again took Horatius Pulvillus as his colleague.
+
+(3) Thus, the first year had five consuls, when Tarquinius Collatinus had left the city because of his name, Brutus had perished in battle, Sp. Lucretius had died from disease.
+
 ### Chapter 11: War with Porsenna, 508 BCE 
 
 (1) In the second year, Tarquin once again waged war against the Romans, seeking to be restored to power. Porsenna, the king of Etruria, provided him with assistance, and they nearly captured Rome. However, Tarquin was defeated once more.
