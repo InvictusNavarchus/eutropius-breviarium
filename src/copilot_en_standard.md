@@ -1073,3 +1073,147 @@ At no time before him did the Roman state flourish more; for except for civil wa
 (5) He also did many works in Rome, among these the Capitol and the Forum Transitorium, the Portico of the Divi, the Iseum and Serapeum and the Stadium.
 
 (6) But when he began to be hated by all because of his crimes, he was killed by a conspiracy of his own in the Palace, in the forty-fifth year of his age, the fifteenth of his reign. His funeral was carried out with great disgrace by undertakers and he was ignobly buried.
+
+## Book 8: From the Accession of Nerva to the Death of Alexander Severus, 96 – 235 CE 
+
+### Chapter 1: Nerva Emperor, 96 – 98 CE 
+
+(1) In the eight hundred and fiftieth year from the founding of the city, with Vetus and Valens as consuls, the republic returned to a very prosperous state, entrusted to good princes with great happiness. For the destructive tyrant Domitian was succeeded by Nerva, a man who was moderate and vigorous in private life, of middle nobility; who, being quite old, with the help of Petronius Secundus, prefect of the praetorium, and Parthenius, the killer of Domitian, became emperor. He showed himself to be very fair and civil.
+
+(2) He consulted for the republic by divine provision by adopting Trajan. He died in Rome after a year and four months of his reign and eight days, in the seventy-second year of his age, and was counted among the gods.
+
+### Chapter 2: Trajan Emperor, 98 – 117 CE 
+
+(1) Ulpius Crinitus Trajan, born in Italica in Spain, of a family more ancient than famous, succeeded him. For his father was first consul. He became emperor at Agrippina in Gaul. He administered the republic in such a way that he is deservedly preferred to all princes, unusually civil and brave.
+
+(2) He spread the boundaries of the Roman empire, which after Augustus had been defended more than nobly expanded, far and wide. He repaired cities across the Rhine in Germany. He subdued Dacia, having conquered Decibalus, with a province made across the Danube in these fields, which the Taifali, Victuali and Tervingi now have. That province held ten thousand miles in circumference.
+
+### Chapter 3 
+
+(1) He recovered Armenia, which the Parthians had occupied, with Parthomasiris killed, who held it. He gave a king to the Albanians. He took the king of the Iberians and the Sarmatians and the Bosporans and the Arabs and the Osdroenes and the Colchians into his protection. He occupied the Cardueni, Marcomedi and Anthemusium, a great region of Persia, Seleucia, Ctesiphon, Babylon. He conquered and held the Messenians.
+
+(2) He reached as far as the borders of India and the Red Sea and there he made three provinces, Armenia, Assyria, Mesopotamia, with those nations that reach Madena. He later reduced Arabia to the form of a province. He established a fleet in the Red Sea, so that through it he might devastate the borders of India.
+
+### Chapter 4 
+
+However, he surpassed his military glory with civility and moderation, showing himself equal to all in Rome and throughout the provinces, often visiting friends for the sake of greeting or when they were sick or when they had festive days, having indiscriminate banquets with them in turn, often sitting in their vehicles, not harming any of the senators, doing nothing unjust to increase the treasury, liberal towards all, enriching everyone publicly and privately and increasing honors, those whom he had known even with mediocre familiarity, building many things throughout the world, granting immunities to cities, doing nothing but tranquil and placid, so that in all his age one senator was condemned and yet through the senate ignorant of Trajan. For these things throughout the world he deserved nothing but veneration both alive and dead.
+
+### Chapter 5 
+
+(1) Among other sayings, this outstanding one of his is reported; for when friends were blaming him, because he was too common around everyone, he replied that he was such an emperor to private individuals, as he would have wished emperors to be to him as a private individual.
+
+(2) Therefore, after seeking immense glory in war and at home, returning from Persia, he died at Seleucia in Isauria from a flow of the belly. But he died in the sixty-third year of his age, in the ninth month, on the fourth day, in the nineteenth year of his reign, in the sixth month, on the fifteenth day. He was counted among the gods and was the only one of all buried within the city. His bones were collected in a golden urn in the forum, which he built, placed under a column, which has a height of 144 feet.
+
+(3) Only so much of his memory has been reported, that up to our age no other way in the senate are princes acclaimed, unless "Happier than Augustus, better than Trajan." So in him the glory of goodness prevailed, that whether agreeing or truly praising, he provides an opportunity for the most magnificent example.
+
+### Chapter 6: Hadrian Emperor, 117 – 138 CE 
+
+(1) After Trajan's death, Aelius Hadrianus was created prince, without any will of Trajan indeed, but with the help of Plotina, Trajan's wife; for Trajan, although he was the son of his cousin, did not want to adopt him while he was alive.
+
+(2) He too was born in Italica in Spain. He, envying the glory of Trajan, immediately left three provinces, which Trajan had added, and recalled the armies from Assyria, Mesopotamia, Armenia and wanted the end of the empire to be the Euphrates. His friends deterred him from trying to do the same about Dacia, lest many Roman citizens be handed over to the barbarians, because Trajan, having conquered Dacia, had transferred infinite troops of men from the whole Roman world to cultivate fields and cities. For Dacia had been exhausted of men by a long war with Decibalus.
+
+### Chapter 7:  
+
+(1) However, he had peace throughout all the time of his empire, he fought only once through the governor.
+
+(2) He traveled around the Roman world. He built many things. He was most eloquent in Latin speech, most learned in Greek. He did not have great glory of clemency, however he was very diligent about the treasury and military discipline.
+
+(3) He died in Campania, older than sixty, in the twenty-first year of his reign, in the tenth month, on the twenty-ninth day. The senate did not want to grant him divine honors, however when his successor T. Aurelius Antoninus Fulvius vehemently demanded this and all the senators openly resisted, he finally obtained it.
+
+### Chapter 8: Antoninus Pius Emperor, 138 – 161 CE 
+
+(1) Therefore, after Hadrian, T. Antoninus Fulvius Boionius, also named Pius, of a famous family, but not very old, succeeded, a remarkable man and who deservedly is compared to Numa Pompilius, so that Trajan is equated with Romulus.
+
+(2) He lived with great honesty as a private individual, greater in power, harsh to no one, kind to all, with moderate glory in military affairs, preferring to defend the provinces rather than to expand them, seeking very fair men to administer the republic, having honor for the good, detesting the wicked without any bitterness, venerable no less than terrible to friendly kings, so that many nations of barbarians, having laid down their arms, would bring their controversies and lawsuits to him and would obey his judgments.
+
+(3) This man, before the empire very rich, indeed diminished all his wealth with the stipends of soldiers and liberality around friends, but he left the treasury wealthy. Pius was named for his clemency.
+
+(4) He died at his villa Lorium, twelve miles from the city, in the seventy-third year of his life, in the twenty-third year of his reign, and was counted among the gods and deservedly consecrated.
+
+### Chapter 9: Marcus Aurelius and Lucius Verus Emperors, 161 – 169 CE 
+
+(1) After him, M. Antoninus Verus ruled, undoubtedly the most noble, since his paternal origin depended on Numa Pompilius, his maternal on King Solentinus, and with him L. Annius Antoninus Verus.
+
+(2) Then for the first time the Roman republic obeyed two administering the empire with equal right, since up to them it had always had single Augustuses.
+
+### Chapter 10 
+
+(1) They were connected by both family and affinity. For Verus Annius Antoninus had the daughter of M. Antoninus in marriage, but M. Antoninus was the son-in-law of Antoninus Pius through his wife Galeria Faustina the younger, his cousin.
+
+(2) They waged war against the Parthians, who after the victory of Trajan had rebelled for the first time. Verus Antoninus set out for this. He, doing many and great things through his leaders while acting at Antioch and around Armenia. He captured Seleucia, the most noble city of Assyria, with four hundred thousand men; he brought back the Parthian triumph. He triumphed with his brother and also his father-in-law.
+
+(3) However, he died in Venice, when he was setting out from the city of Concordia for Altinum and was sitting in the vehicle with his brother, suddenly struck by blood, by the chance of a disease, which the Greeks call apoplexy.
+
+(4) A man of a character not very civil, however, out of reverence for his brother, he dared nothing harsh. When he had died in the eleventh year of his reign, he was counted among the gods.
+
+### Chapter 11: Marcus Aurelius Reigns Alone, 169 – 180 CE 
+
+(1) After him, M. Antoninus alone held the republic, a man whom one could more easily admire than praise. From the beginning of his life, he was so calm that from his infancy he changed his expression neither for joy nor for sorrow. He was devoted to Stoic philosophy, and he himself was not only a philosopher in his way of life and manners, but also in his learning. 
+
+(2) He was of such admiration even as a young man, that Hadrian prepared to leave him as his successor, but having adopted Antoninus Pius as his son-in-law, he wanted him to be this, so that he might come to power in this order. 
+
+### Chapter 12:  
+
+(1) He was introduced to philosophy by Apollonius of Chalcedon, to the knowledge of Greek literature by the nephew of Plutarch of Chaeronea, and the most noble orator Fronto taught him Latin letters. Here, he dealt with everyone in Rome on an equal footing, he was not elevated to any insolence by the height of power, he was most ready for generosity.  
+
+(2) He treated the provinces with great kindness and moderation. Against the Germans, under this prince, things were successfully managed, he himself waged only one war, the Marcomannic, but as much as there was no memory, so that it is compared to the Punic. For it was made more serious by the fact that all the Roman armies had perished. For under this, there was such a disaster of plague, that after the Persian victory, in Rome and throughout Italy and the provinces, the greatest part of men, almost all the forces of the soldiers, failed from languor. 
+
+### Chapter 13: 
+
+(1) Therefore, with great labor and moderation, having persevered at Carnuntum for three continuous years, he finished the Marcomannic war, which had stirred up all barbarism with these Quadi, Vandals, Sarmatians, Suevi. He killed many thousands of men and having freed the Pannonians from servitude, he again triumphed in Rome with his son Commodus Antoninus, whom he had already made Caesar.  
+
+(2) For the expense of this war, when he had no largesses because the treasury was exhausted and he did not want to announce anything to the provincials or the senate, he sold off the equipment of the royal cult, made a sale in the forum of the divine Trajan, golden vessels, crystal and murrine cups, his wife's and his own silk and golden garment, many ornaments of gems. And this sale was held for two continuous months and much gold was collected. However, after the victory, he restored the prices to the buyers, who wanted to return the things bought; he was troublesome to no one, who preferred to retain what was once bought. 
+
+### Chapter 14 
+
+(1) He allowed the more distinguished men to hold banquets in the same manner as he himself and with similar servants. In the edition of the games after the victory, he was so magnificent that he is reported to have exhibited a hundred lions at the same time. 
+
+(2) Therefore, when he had restored the republic to a fortunate state both by virtue and gentleness, he died in the eighteenth year of his reign, in the sixty-first year of his life, and with everyone eagerly striving, he was counted among the gods. 
+
+### Chapter 15: Commodus Emperor, 180 – 193 CE 
+
+The successor of this man, L. Antoninus Commodus, had nothing of his father, except that he also fought successfully against the Germans. He tried to transfer the month of September to his name, so that it would be called Commodus. But corrupted by luxury and obscenity, he often fought in the game with gladiatorial arms, and then also in the amphitheater with men of this kind. He died suddenly and so much so, that he is thought to have been strangled or killed by poison, when he had reigned twelve years after his father and eight months, with such execration of all, that even dead he was judged an enemy of the human race. 
+
+### Chapter 16: Pertinax Emperor, 193 CE 
+
+Pertinax, an old man, succeeded him, as one who had reached the age of seventy, then holding the prefecture of the city, ordered to rule by a decree of the senate. On the eightieth day of his reign, he was killed by a mutiny of the praetorian soldiers and the crime of Julian. 
+
+### Chapter 17 
+
+After him, Salvius Julianus invaded the republic, a noble man and very skilled in law, the nephew of Salvius Julianus who composed the perpetual edict under the divine Hadrian. He was defeated by Severus at the Mulvian bridge, killed in the Palace. He lived seven months, after he had begun to rule. 
+
+### Chapter 18: Septimius Severus Emperor, 193 – 211 CE 
+
+(1) From here, Septimius Severus took over the administration of the Roman empire, originating from the African province of Tripolitania, the town of Leptis. Alone in all memory both before and after, he was an emperor from Africa.  
+
+(2) He was first an advocate of the treasury, then a military tribune, through many and various offices and honors he came to the administration of the whole republic. 
+
+(3) He wanted to be called Pertinax in honor of that Pertinax, who had been killed by Julian. He was very sparing, naturally savage.  
+
+(4) He waged many wars and successfully. He killed Pescennius Niger, who had rebelled in Egypt and Syria, at Cyzicus. He conquered the Parthians and the inner Arabs and Adiabenos. He overcame the Arabs so much, that he even made a province there. Therefore he was called Parthicus, Arabicus, Adiabenicus. He repaired many things throughout the Roman world. Under him also Clodius Albinus, who had been an associate of Julian in killing Pertinax, made himself Caesar in Gaul, and having been defeated, he was killed at Lyon. 
+
+### Chapter 19 
+
+(1) However, Severus, besides his military glory, was also famous for his civil studies and was learned in letters; he fully attained the knowledge of philosophy. He had his last war in Britain, and in order to fortify the provinces that had been recovered with all security, he led a rampart through 132 miles from sea to sea.  
+
+(2) He died at York, a very old man, in the sixteenth year of his reign, in the third month.  
+
+(3) He was called a god. For he left two sons as successors, Bassianus and Geta, but he wanted the senate to impose the name of Antoninus on Bassianus. Therefore he was called M. Aurelius Antoninus Bassianus and he succeeded his father. For Geta, having been judged a public enemy, immediately perished. 
+
+### Chapter 20: Caracalla Emperor, 211 – 217 CE 
+
+(1) Therefore M. Aurelius Antoninus Bassianus, the same Caracalla, was of almost paternal manners, a little harsher and threatening. He did a remarkable work in Rome, the baths, which are called Antoninianae, nothing else memorable. Impatient of lust, who married his stepmother Julia. 
+
+(2) He died in Osroene at Edessa, planning an expedition against the Parthians in the sixth year of his reign in the second month, barely having passed his forty-third year. He was carried out with a public funeral. 
+
+### Chapter 21: Macrinus Emperor, 218 CE 
+
+Then Opilius Macrinus, who was the prefect of the praetorium, with his son Diadumenus made emperors, they did nothing memorable because of the shortness of time. For their reign was of two months and one year. By a military sedition, both were killed together. 
+
+### Chapter 22: Heliogabalus Emperor, 218 – 222 CE 
+
+After these, M. Aurelius Antoninus was created. This Antoninus Caracalla was thought to be his son, but he was a priest of the temple of Heliogabalus. When he had come to Rome with great expectation of both the soldiers and the senate, he contaminated himself with all disgrace. He lived most shamefully and obscenely and two years later and eight months he was killed by a military tumult and with him his mother Symiasera. 
+
+### Chapter 23: Alexander Severus Emperor, 222 – 235 CE 
+
+Aurelius Alexander succeeded him, named Caesar by the army, Augustus by the senate, a very young man; and having undertaken a war against the Persians, he most gloriously defeated Xerxes, their king. He ruled the military discipline very strictly. He discharged some riotous legions in full. He had Ulpian, the founder of the law, as his assessor or master of the chest. He was also favorable to Rome. He died in Gaul in a military tumult in the thirteenth year of his reign and on the ninth day. He was very pious towards his mother Mamaea.
