@@ -110,7 +110,7 @@ War with Tarquinius
 
 ### Chapter 14: War with the Volsci, 493 BCE 
 
-Sequentī annō Volscī contrā Rōmānōs bellum reparāvērunt, et victī aciē etiam Coriolōs cīvitātem, quam habēbant opimam, perdidērunt. 
+(1) Sequentī annō Volscī contrā Rōmānōs bellum reparāvērunt, et victī aciē etiam Coriolōs cīvitātem, quam habēbant opimam, perdidērunt. 
 
 ### Chapter 15: Coriolanus, 491 BCE 
 
