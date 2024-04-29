@@ -4,11 +4,11 @@
 
 ​DOMINO VALENTI 
 
-(1) GOTHICO MAXIMO PERPETUO AUGUSTO 
+GOTHICO MAXIMO PERPETUO AUGUSTO 
 
-(1) EUTROPIUS V. C. MAGISTER MEMORIAE 
+EUTROPIUS V. C. MAGISTER MEMORIAE 
 
-(1) Rēs Rōmānās ex voluntāte mānsuētūdinis tuae ab urbe conditā ad nostram memoriam, quae in negōtiīs vel bellicīs vel cīvīlibus ēminēbant, per ōrdinem temporum brevī nārrātiōne collēgī, strictim additīs etiam hīs, quae in prīncipum vītā ēgregia extitērunt, ut tranquillitātis tuae possit mēns dīvīna laetārī prius sē inlūstrium virōrum facta in administrandō imperiō secūtam, quam cognōsceret lēctiōne.
+Rēs Rōmānās ex voluntāte mānsuētūdinis tuae ab urbe conditā ad nostram memoriam, quae in negōtiīs vel bellicīs vel cīvīlibus ēminēbant, per ōrdinem temporum brevī nārrātiōne collēgī, strictim additīs etiam hīs, quae in prīncipum vītā ēgregia extitērunt, ut tranquillitātis tuae possit mēns dīvīna laetārī prius sē inlūstrium virōrum facta in administrandō imperiō secūtam, quam cognōsceret lēctiōne.
 
 ## Book 1: From the Founding of Rome to the Capture of the City by the Gauls, 753 – 390 BCE. The Regal Period, 753 – 509 BCE 
 
