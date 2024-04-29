@@ -52,7 +52,7 @@ Origin of Rome, I.----Characters and acts of the seven kings of Rome, II.----VII
 
 (1) Afterwards Numa Pompilius was elected king, who engaged indeed in no wars, but was of no less service to the state than Romulus;
 
-(2) for he established both laws and customs among the Romans, who, by the frequency of their wars, were now regarded as robbers and semi-barbarians. He divided the year, before unregulated by any computation, into ten months, and founded numerous sacred rites and temples at Rome. He died a natural death in the forty-third year of his reign.
+(2) For he established both laws and customs among the Romans, who, by the frequency of their wars, were now regarded as robbers and semi-barbarians. He divided the year, before unregulated by any computation, into ten months, and founded numerous sacred rites and temples at Rome. He died a natural death in the forty-third year of his reign.
 
 ### IV
 
@@ -80,7 +80,7 @@ To him succeeded Tullus Hostilius, who re-commenced war. He conquered the Albans
 
 (1) Lucius Tarquinius Superbus, the seventh and last of the kings, overcame the Volsci, a nation not far from Rome, on the road to Campania; reduced the towns of Gabii and Suessa Pometia; made peace with the Tuscans; and built a temple to Jupiter in the Capitol. Afterwards, while he was besieging Ardea, a town that lay about eighteen miles from the city, he was deprived of his throne;
 
-(2) for, as his younger son, who was also named Tarquin, offered violence to Lucretia, the wife of Collatinus, a most noble and chaste woman; and as she, after complaining to her husband, her father, and her friends, of the injury that she had suffered, slew herself in the sight of them all; Brutus, in consequence, who was a kinsman of Tarquinius,[2] excited an insurrection among the people, and deprived Tarquin of his regal authority.
+(2) For, as his younger son, who was also named Tarquin, offered violence to Lucretia, the wife of Collatinus, a most noble and chaste woman; and as she, after complaining to her husband, her father, and her friends, of the injury that she had suffered, slew herself in the sight of them all; Brutus, in consequence, who was a kinsman of Tarquinius,[2] excited an insurrection among the people, and deprived Tarquin of his regal authority.
 
 (3) The army, also, which was engaged with the king in besieging Ardea, soon after deserted him; and the king himself, on going to the city, found the gates closed against him; and, after having reigned five-and-twenty years, was forced to take flight with his wife and children. Thus a regal form of government continued at Rome, under seven kings, for the space of two hundred and forty-three years, while as yet the dominion of the city, where its extent was greatest, hardly reached fifteen miles.
 
@@ -198,13 +198,13 @@ Military tribunes created instead of consuls; Camillus overcomes the Volsci, Aeq
 
 (1) In the three hundred and sixty-fifth year after the foundation of the city, and the first after its capture by the Gauls, the form of government was changed; and, instead of two consuls, military tribunes, invested with consular power, were created. From this time the power of Rome began to increase;
 
-(2) for that very year Camillus reduced the state of the Volsci, which had persisted to make war for seventy years; also the cities of the Aequi and Sutrini; and, overthrowing their armies, took possession of them all; and thus enjoyed three triumphs at the same time.
+(2) For that very year Camillus reduced the state of the Volsci, which had persisted to make war for seventy years; also the cities of the Aequi and Sutrini; and, overthrowing their armies, took possession of them all; and thus enjoyed three triumphs at the same time.
 
 ### II
 
 (1) Titus Quintius Cincinnatus, also, having pursued the Praenestini, who had advanced in a hostile manner to the very gates of Rome, defeated them on the river Allia, annexing eight cities that were under their dominion to the Roman empire; and, attacking Praeneste itself, forced it to surrender;
 
-(2) all which acts were accomplished by him in the space of twenty days; and a triumph was decreed him.
+(2) All which acts were accomplished by him in the space of twenty days; and a triumph was decreed him.
 
 ### III
 
@@ -224,7 +224,7 @@ Military tribunes created instead of consuls; Camillus overcomes the Volsci, Aeq
 
 (2) These troops having marched out against the Gauls, under the conduct of Lucius Furius Camillus, one of the Gauls challenged the most valiant among the Romans to single combat;
 
-(3) when Marcus Valerius, a tribune of the soldiers, came forward to accept the challenge; and, as he advanced in full armour, a crow settled upon his right shoulder.
+(3) When Marcus Valerius, a tribune of the soldiers, came forward to accept the challenge; and, as he advanced in full armour, a crow settled upon his right shoulder.
 
 (4) Afterwards, too, when he commenced the encounter with the Gaul, the same crow, with his wings and talons, furiously assailed the Gaul's eyes, so that he was not able to see before him, and thus, being slain by the tribune Valerius, he gave him not only a victory, but a name; for he was afterwards called Corvus. For the same service also, at the age of three and twenty, he was made consul.
 
