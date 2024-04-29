@@ -196,27 +196,37 @@ Military tribunes created instead of consuls; Camillus overcomes the Volsci, Aeq
 
 ### I
 
-In the three hundred and sixty-fifth year after the foundation of the city, and the first after its capture by the Gauls, the form of government was changed; and, instead of two consuls, military tribunes, invested with consular power, were created. From this time the power of Rome began to increase; for that very year Camillus reduced the state of the Volsci, which had persisted to make war for seventy years; also the cities of the Aequi and Sutrini; and, overthrowing their armies, took possession of them all; and thus enjoyed three triumphs at the same time.
+(1) In the three hundred and sixty-fifth year after the foundation of the city, and the first after its capture by the Gauls, the form of government was changed; and, instead of two consuls, military tribunes, invested with consular power, were created. From this time the power of Rome began to increase;
+
+(2) for that very year Camillus reduced the state of the Volsci, which had persisted to make war for seventy years; also the cities of the Aequi and Sutrini; and, overthrowing their armies, took possession of them all; and thus enjoyed three triumphs at the same time.
 
 ### II
 
-Titus Quintius Cincinnatus, also, having pursued the Praenestini, who had advanced in a hostile manner to the very gates of Rome, defeated them on the river Allia, annexing eight cities that were under their dominion to the Roman empire; and, attacking Praeneste itself, forced it to surrender; all which acts were accomplished by him in the space of twenty days; and a triumph was decreed him.
+(1) Titus Quintius Cincinnatus, also, having pursued the Praenestini, who had advanced in a hostile manner to the very gates of Rome, defeated them on the river Allia, annexing eight cities that were under their dominion to the Roman empire; and, attacking Praeneste itself, forced it to surrender;
+
+(2) all which acts were accomplished by him in the space of twenty days; and a triumph was decreed him.
 
 ### III
 
-But the office of military tribunes did not last long; for, after a short time, it was enacted that no more should be created; and four years passed in the state in such a manner that none of the superior magistrates were appointed. The military tribunes, however, were re-instated in their office with consular authority, and continued for three years, when consuls were again elected.
+(1) But the office of military tribunes did not last long; for, after a short time, it was enacted that no more should be created; and four years passed in the state in such a manner that none of the superior magistrates were appointed. The military tribunes, however, were re-instated in their office with consular authority, and continued for three years, when consuls were again elected.
 
 ### IV
 
-In the consulship of Lucius Genucius and Quintus Servilius, Camillus died, and honour next to that of Romulus was paid him.
+(1) In the consulship of Lucius Genucius and Quintus Servilius, Camillus died, and honour next to that of Romulus was paid him.
 
 ### V
 
-Titus Quintius was sent out as dictator against the Gauls, who had marched into Italy; and had encamped about four miles from the city, on the other side of the river Anio, Titus Manlius, one of the noblest of the senators, encountering a Gaul who had challenged him to single combat, slew him; and, having taken from his neck a chain of gold, and put it on his own, secured the appellation of Torquatus to himself and his posterity for ever. The Gauls were repulsed, and soon afterwards entirely defeated by Caius Sulpicius the dictator. Shortly after, the Tuscans were defeated by Caius Marcius, and eight thousand of them were taken prisoners and led in triumph.
+(1) Titus Quintius was sent out as dictator against the Gauls, who had marched into Italy; and had encamped about four miles from the city, on the other side of the river Anio, Titus Manlius, one of the noblest of the senators, encountering a Gaul who had challenged him to single combat, slew him; and, having taken from his neck a chain of gold, and put it on his own, secured the appellation of Torquatus to himself and his posterity for ever. The Gauls were repulsed, and soon afterwards entirely defeated by Caius Sulpicius the dictator. Shortly after, the Tuscans were defeated by Caius Marcius, and eight thousand of them were taken prisoners and led in triumph.
 
 ### VI
 
-A census was again taken; and as the Latins, who had been subdued by the Romans, refused to furnish troops, recruits were levied from among the Romans only, and ten legions were raised, making sixty thousand fighting men, or upwards; so great was the power of the Romans in war, while their territory was as yet but small. These troops having marched out against the Gauls, under the conduct of Lucius Furius Camillus, one of the Gauls challenged the most valiant among the Romans to single combat; when Marcus Valerius, a tribune of the soldiers, came forward to accept the challenge; and, as he advanced in full armour, a crow settled upon his right shoulder. Afterwards, too, when he commenced the encounter with the Gaul, the same crow, with his wings and talons, furiously assailed the Gaul's eyes, so that he was not able to see before him, and thus, being slain by the tribune Valerius, he gave him not only a victory, but a name; for he was afterwards called Corvus. For the same service also, at the age of three and twenty, he was made consul.
+(1) A census was again taken; and as the Latins, who had been subdued by the Romans, refused to furnish troops, recruits were levied from among the Romans only, and ten legions were raised, making sixty thousand fighting men, or upwards; so great was the power of the Romans in war, while their territory was as yet but small.
+
+(2) These troops having marched out against the Gauls, under the conduct of Lucius Furius Camillus, one of the Gauls challenged the most valiant among the Romans to single combat;
+
+(3) when Marcus Valerius, a tribune of the soldiers, came forward to accept the challenge; and, as he advanced in full armour, a crow settled upon his right shoulder.
+
+(4) Afterwards, too, when he commenced the encounter with the Gaul, the same crow, with his wings and talons, furiously assailed the Gaul's eyes, so that he was not able to see before him, and thus, being slain by the tribune Valerius, he gave him not only a victory, but a name; for he was afterwards called Corvus. For the same service also, at the age of three and twenty, he was made consul.
 
 ### VII
 
