@@ -288,7 +288,7 @@ Military tribunes created instead of consuls; Camillus overcomes the Volsci, Aeq
 
 (1) After the lapse of a year, Fabricius was sent out against Pyrrhus, the same who, when he was before among the ambassadors, could not be won with a promise of the fourth part of his kingdom.
 
-(2) As Fabricius and the king had their camps near to each other, the physician of Pyrrhus came to Fabricius by night, offering to despatch Pyrrhus by poison, if he would promise him some remuneration; upon which Fabricius ordered that he should be taken back in chains to his master, and that information should be given to Pyrrhus of the proposals which the physician had made against his life. The king, struck with admiration of his conduct, is reported to have exclaimed on the occasion,
+(2) As Fabricius and the king had their camps near to each other, the physician of Pyrrhus came to Fabricius by night, offering to despatch Pyrrhus by poison, if he would promise him some remuneration; upon which Fabricius ordered that he should be taken back in chains to his master, and that information should be given to Pyrrhus of the proposals which the physician had made against his life. The king, struck with admiration of his conduct, is reported to have exclaimed on the occasion:
 
 (3) "That excellent Fabricius is a man who can less easily be diverted from the path of honour, than the sun from its course." Pyrrhus then departed for Sicily. Fabricius, after defeating the Samnites and Lucanians, obtained a triumph.
 
@@ -324,7 +324,7 @@ When Marcus Attilius Regulus and Lucius Junius Libo were consuls, war was declar
 
 (1) In the fifth year of the Punic war, which was carried on against the Africans, the Romans first fought by sea, in the consulate of Caius Duilius and Cnaeus Cornelius Asina, having provided themselves with vessels armed with beaks, which they term Liburnian galleys.
 
-(2) The consul Cornelius fell a victim to treachery.12 Duilius, joining battle, defeated the commander of the Carthaginians, took thirty-one of their ships, sunk fourteen, took seven thousand of the enemy prisoners, and slew three thousand; nor was there ever a victory more gratifying to the Romans, for they were now not only invincible by land, but eminently powerful at sea.
+(2) The consul Cornelius fell a victim to treachery. 12 Duilius, joining battle, defeated the commander of the Carthaginians, took thirty-one of their ships, sunk fourteen, took seven thousand of the enemy prisoners, and slew three thousand; nor was there ever a victory more gratifying to the Romans, for they were now not only invincible by land, but eminently powerful at sea.
 
 (3) In the consulship of Caius Aquilius Florus and Lucius Scipio, Scipio laid waste Corsica and Sardinia, carried away several thousand captives from thence, and obtained a triumph.
 
