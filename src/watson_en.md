@@ -330,37 +330,63 @@ When Marcus Attilius Regulus and Lucius Junius Libo were consuls, war was declar
 
 ### XXI
 
-When Lucius Manlius Vulso and Marcus Attilius Regulus were consuls, war was carried over into Africa against Hamilcar the general of the Carthaginians. A naval engagement was fought, and the Carthaginian utterly defeated, for he retired with the loss of sixty four of his ships. The Romans lost only twenty-two; and, having then crossed over into Africa, they compelled Clypea, the first city at which they arrived in Africa, to surrender. The consuls then advanced as far as Carthage; and, having laid waste many places, Manlius returned victorious to Rome, and brought with him twenty-seven thousand prisoners. Attilius Regulus remained in Africa. He drew up his army against the Africans; and, fighting at the same time against three Carthaginian generals, came off victorious, killed eighteen thousand of the enemy, took five thousand prisoners, with eighteen elephants, and received seventy-four cities into alliance. The vanquished Carthaginians then sued to the Romans for peace, which Regulus refusing to grant, except upon the hardest conditions, the Africans sought aid from the Lacedaemonians, and, under a leader named Xantippus, who had been sent them by the Lacedaemonians, Regulus, the Roman general, was overthrown with a desperate slaughter; for two thousand men only escaped of all the Roman army; five hundred, with their commander Regulus, were taken prisoners, thirty thousand slain, and Regulus himself thrown into prison.
+(1) When Lucius Manlius Vulso and Marcus Attilius Regulus were consuls, war was carried over into Africa against Hamilcar the general of the Carthaginians. A naval engagement was fought, and the Carthaginian utterly defeated, for he retired with the loss of sixty four of his ships. The Romans lost only twenty-two;
+
+(2) And, having then crossed over into Africa, they compelled Clypea, the first city at which they arrived in Africa, to surrender. The consuls then advanced as far as Carthage; and, having laid waste many places, Manlius returned victorious to Rome, and brought with him twenty-seven thousand prisoners. Attilius Regulus remained in Africa. He drew up his army against the Africans;
+
+(3) And, fighting at the same time against three Carthaginian generals, came off victorious, killed eighteen thousand of the enemy, took five thousand prisoners, with eighteen elephants, and received seventy-four cities into alliance.
+
+(4) The vanquished Carthaginians then sued to the Romans for peace, which Regulus refusing to grant, except upon the hardest conditions, the Africans sought aid from the Lacedaemonians, and, under a leader named Xantippus, who had been sent them by the Lacedaemonians, Regulus, the Roman general, was overthrown with a desperate slaughter;
+
+(5) For two thousand men only escaped of all the Roman army; five hundred, with their commander Regulus, were taken prisoners, thirty thousand slain, and Regulus himself thrown into prison.
 
 ### XXII
 
-In the consulship of Marcus Aemilius Paulus and Servius Fulvius Nobilior, both the Roman consuls set sail for Africa, with a fleet of three hundred ships. They first overcame the Africans in a sea-fight; Aemilius the consul sunk a hundred and four of the enemy's ships, took thirty, with the soldiers in them, killed or took prisoners fifteen thousand of the enemy, and enriched his own army with much plunder; and Africa would then have been subdued, but that so great a famine took place that the army could not continue there any longer. The consuls, as they were returning with their victorious fleet, suffered shipwreck on the coast of Sicily, and so violent was the storm, that out of four hundred and sixty-four ships, eighty could scarcely be saved; nor was so great a tempest at sea ever heard of at any period. The Romans, notwithstanding, soon refitted two hundred ships, nor was their spirit at all broken by their loss.
+(1) In the consulship of Marcus Aemilius Paulus and Servius Fulvius Nobilior, both the Roman consuls set sail for Africa, with a fleet of three hundred ships. They first overcame the Africans in a sea-fight;
+
+(2) Aemilius the consul sunk a hundred and four of the enemy's ships, took thirty, with the soldiers in them, killed or took prisoners fifteen thousand of the enemy, and enriched his own army with much plunder; and Africa would then have been subdued, but that so great a famine took place that the army could not continue there any longer.
+
+(3) The consuls, as they were returning with their victorious fleet, suffered shipwreck on the coast of Sicily, and so violent was the storm, that out of four hundred and sixty-four ships, eighty could scarcely be saved; nor was so great a tempest at sea ever heard of at any period. The Romans, notwithstanding, soon refitted two hundred ships, nor was their spirit at all broken by their loss.
 
 ### XXIII
 
-Cnaeus Servilius Caepio and Caius Sempronius Blaesus, when consuls, set out for Africa with two hundred and sixty ships, and took several cities. As they were returning with a great booty, they suffered shipwreck; and, as these successive calamities annoyed the Romans, the senate in consequence decreed that wars by sea should be given up, and that only sixty ships should be kept for the defence of Italy.
+(1) Cnaeus Servilius Caepio and Caius Sempronius Blaesus, when consuls, set out for Africa with two hundred and sixty ships, and took several cities.
+
+(2) As they were returning with a great booty, they suffered shipwreck; and, as these successive calamities annoyed the Romans, the senate in consequence decreed that wars by sea should be given up, and that only sixty ships should be kept for the defence of Italy.
 
 ### XXIV
 
-In the consulship of Lucius Caecilius Metellus and Caius Furius Pacilus, Metellus defeated a general of the Africans in Sicily, who came against him with a hundred and thirty elephants and a numerous army, slew twenty thousand of the enemy, took six and twenty elephants, collected the rest, which were dispersed, with the aid of the Numidians whom he had to assist him, and brought them to Rome in a vast procession, filling all the roads with elephants, to the number of a hundred and thirty.
+(1) In the consulship of Lucius Caecilius Metellus and Caius Furius Pacilus, Metellus defeated a general of the Africans in Sicily, who came against him with a hundred and thirty elephants and a numerous army, slew twenty thousand of the enemy, took six and twenty elephants, collected the rest, which were dispersed, with the aid of the Numidians whom he had to assist him, and brought them to Rome in a vast procession, filling all the roads with elephants, to the number of a hundred and thirty.
 
-After these misfortunes, the Carthaginians entreated Regulus, the Roman general whom they had taken, to go to Rome, procure them peace from the Romans, and effect an exchange of prisoners.
+(2) After these misfortunes, the Carthaginians entreated Regulus, the Roman general whom they had taken, to go to Rome, procure them peace from the Romans, and effect an exchange of prisoners.
 
 ### XXV
 
-Regulus, on arriving at Rome, and being conducted into the senate, would do nothing in the character of a Roman, declaring that, "from the day when he fell into the hands of the Africans, he had ceased to be a Roman." For this reason he both repelled his wife from embracing him, and gave his advice to the Romans, that "peace should not be made with the Carthaginians; for that they, dispirited by so many losses, had no hope left; and that, with respect to himself, he was not of such importance, that so many thousand captives should be restored on his account alone, old as he was, and for the sake of the few Romans who had been taken prisoners." He accordingly carried his point, for no one would listen to the Carthaginians, when they applied for peace. He himself returned to Carthage, telling the Romans, when they offered to detain him at Rome, that he would not stay in a city, in which, after living in captivity among the Africans, it was impossible for him to retain the dignity of an honourable citizen. Returning therefore to Africa, he was put to death with torture of every description,
+(1) Regulus, on arriving at Rome, and being conducted into the senate, would do nothing in the character of a Roman, declaring that, "from the day when he fell into the hands of the Africans, he had ceased to be a Roman."
+
+(2) For this reason he both repelled his wife from embracing him, and gave his advice to the Romans, that "peace should not be made with the Carthaginians; for that they, dispirited by so many losses, had no hope left; and that, with respect to himself, he was not of such importance, that so many thousand captives should be restored on his account alone, old as he was, and for the sake of the few Romans who had been taken prisoners." He accordingly carried his point, for no one would listen to the Carthaginians, when they applied for peace.
+
+(3) He himself returned to Carthage, telling the Romans, when they offered to detain him at Rome, that he would not stay in a city, in which, after living in captivity among the Africans, it was impossible for him to retain the dignity of an honourable citizen. Returning therefore to Africa, he was put to death with torture of every description,
 
 ### XXVI
 
-When Publius Claudius Pulcher and Caius Junius were consuls, Claudius fought in opposition to the auspices. and was defeated by the Carthaginians; for, out of two hundred and twenty ships, he escaped with only thirty; ninety, together with their men, were taken, the rest sunk, and twenty thousand men made prisoners. The other consul also lost his fleet by shipwreck, but was able to save his troops, as the shore was close at hand.
+(1) When Publius Claudius Pulcher and Caius Junius were consuls, Claudius fought in opposition to the auspices. and was defeated by the Carthaginians; for, out of two hundred and twenty ships, he escaped with only thirty; ninety, together with their men, were taken, the rest sunk, and twenty thousand men made prisoners.
+
+(2) The other consul also lost his fleet by shipwreck, but was able to save his troops, as the shore was close at hand.
 
 ### XXVII
 
-In the consulate of Caius Lutatius Catulus and Aulus Posthumius Albinus, in the twenty-third year of the Punic war, the conduct of the war against the Africans was committed to Catulus. He set sail for Sicily with three hundred ships. The Africans fitted out four hundred against him. Lutatius Catulus embarked in an infirm state of health, having been wounded in a previous battle. An encounter took place opposite Lilybaeum, a city of Sicily, with the greatest valour on the part of the Romans, for seventy-three of the Carthaginian ships were taken, and a hundred and twenty-five sunk; thirty-two thousand of the enemy were made prisoners, and thirteen thousand slain; and a vast sum in gold and silver fell into the hands of the Romans. Of the Roman fleet twelve ships were sunk The battle was fought on the 10th of March. The Carthaginians immediately sued for peace, and peace was granted them. The Roman prisoners who were in the hands of the Carthaginians were restored; the Carthaginians also requested permission to redeem such of the Africans as the Romans kept in captivity. The senate decided that those who were state prisoners should be restored without ransom; but that those who were in the hands of private persons should return to Carthage on the payment of a sum to their owners; and that such payment should be made from the public treasury, rather than by the Carthaginians.
+(1) In the consulate of Caius Lutatius Catulus and Aulus Posthumius Albinus, in the twenty-third year of the Punic war, the conduct of the war against the Africans was committed to Catulus. He set sail for Sicily with three hundred ships. The Africans fitted out four hundred against him.
+
+(2) Lutatius Catulus embarked in an infirm state of health, having been wounded in a previous battle. An encounter took place opposite Lilybaeum, a city of Sicily, with the greatest valour on the part of the Romans,
+
+(3) For seventy-three of the Carthaginian ships were taken, and a hundred and twenty-five sunk; thirty-two thousand of the enemy were made prisoners, and thirteen thousand slain; and a vast sum in gold and silver fell into the hands of the Romans. Of the Roman fleet twelve ships were sunk The battle was fought on the 10th of March.
+
+(4) The Carthaginians immediately sued for peace, and peace was granted them. The Roman prisoners who were in the hands of the Carthaginians were restored; the Carthaginians also requested permission to redeem such of the Africans as the Romans kept in captivity. The senate decided that those who were state prisoners should be restored without ransom; but that those who were in the hands of private persons should return to Carthage on the payment of a sum to their owners; and that such payment should be made from the public treasury, rather than by the Carthaginians.
 
 ### XXVIII
 
-Quintus Lutatius and Aulius Manlius, being created consuls, made war upon the Falisci, formerly a powerful people of Italy, which war the consuls in conjunction brought to a termination within six days after they took the field; fifteen thousand of the enemy were slain, and peace was granted to the rest, but half their land was taken from them.
+(1) Quintus Lutatius and Aulius Manlius, being created consuls, made war upon the Falisci, formerly a powerful people of Italy, which war the consuls in conjunction brought to a termination within six days after they took the field; fifteen thousand of the enemy were slain, and peace was granted to the rest, but half their land was taken from them.
 
 ### Notes
 
