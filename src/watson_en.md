@@ -106,51 +106,75 @@ To him succeeded Tullus Hostilius, who re-commenced war. He conquered the Albans
 
 ### XI
 
-In the second year also, Tarquin, with a view to being re-established on the throne, again made war on the Romans, and, as Porsena, king of Tuscany, afforded him aid, almost took Rome. But he was also defeated on that occasion.
+(1) In the second year also, Tarquin, with a view to being re-established on the throne, again made war on the Romans, and, as Porsena, king of Tuscany, afforded him aid, almost took Rome. But he was also defeated on that occasion.
 
-In the third year after the expulsion of the royal family, Tarquin, as he could not get himself re-admitted into the kingdom, and as Porsena, who had made peace with the Romans, gave him no support, retired to Tusculum, a town which is not far from Rome; where he and his wife lived for fourteen years in a private station, and reached an advanced age.
+(2) In the third year after the expulsion of the royal family, Tarquin, as he could not get himself re-admitted into the kingdom, and as Porsena, who had made peace with the Romans, gave him no support, retired to Tusculum, a town which is not far from Rome; where he and his wife lived for fourteen years in a private station, and reached an advanced age.
 
-In the fourth year after the abolition of the kingly power, the Sabines, having made war on the Romans, were conquered; and a triumph was celebrated over them.
+(3) In the fourth year after the abolition of the kingly power, the Sabines, having made war on the Romans, were conquered; and a triumph was celebrated over them.
 
-In the fifth year, Lucius Valerius, the colleague of Brutus, and consul for the fourth time, died a natural death, and in such extreme poverty, that the expenses of his funeral were defrayed by a public subscription.[3] The matrons mourned for him, as for Brutus, during a year.
+(5) In the fifth year, Lucius Valerius, the colleague of Brutus, and consul for the fourth time, died a natural death, and in such extreme poverty, that the expenses of his funeral were defrayed by a public subscription.[3] The matrons mourned for him, as for Brutus, during a year.
 
 ### XII
 
-In the ninth year after the overthrow of the kingly power, the son-in-law of Tarquin, having assembled a vast army, in order to avenge the wrongs of his father-in-law, a new office was introduced at Rome, which was called the dictatorship, and which was more absolute than the consulate. In the same year also a master of the horse was appointed to be an officer under the dictator. Nor can anything be named more like to the imperial authority, which your Serenity now enjoys, than the ancient dictatorship, especially since Caesar Octavianus, also, of whom we shall speak hereafter, and Caius Caesar before him, ruled with the title and rank of dictator. The first dictator at Rome was Lartius; the first master of the horse, Spurius Cassius.
+(1) In the ninth year after the overthrow of the kingly power, the son-in-law of Tarquin, having assembled a vast army, in order to avenge the wrongs of his father-in-law, a new office was introduced at Rome, which was called the dictatorship, and which was more absolute than the consulate. In the same year also a master of the horse was appointed to be an officer under the dictator.
+
+(2) Nor can anything be named more like to the imperial authority, which your Serenity now enjoys, than the ancient dictatorship, especially since Caesar Octavianus, also, of whom we shall speak hereafter, and Caius Caesar before him, ruled with the title and rank of dictator.
+
+(3) The first dictator at Rome was Lartius; the first master of the horse, Spurius Cassius.
 
 ### XIII
 
-In the sixteenth year after the termination of the regal power, the people at Rome, thinking themselves oppressed by the senate and consuls, broke out into a sedition. On this occasion they created for themselves tribunes of the people, as their own peculiar judges and defenders, by whom they might be protected against the senate and the consuls.
+(1) In the sixteenth year after the termination of the regal power, the people at Rome, thinking themselves oppressed by the senate and consuls, broke out into a sedition.
+
+(2) On this occasion they created for themselves tribunes of the people, as their own peculiar judges and defenders, by whom they might be protected against the senate and the consuls.
 
 ### XIV
 
-In the following year the Volsci recommenced hostilities against the Romans; and being overcome in the field, lost also Corioli, the best city that they had.
+(1) In the following year the Volsci recommenced hostilities against the Romans; and being overcome in the field, lost also Corioli, the best city that they had.
 
 ### XV
 
-In the eighteenth year after the banishment of the royal family, Quintius Marcius, the Roman general who had taken Corioli, the city of the Volsci, being compelled to flee from Rome, directed his course, in resentment, to the Volsci themselves, and received from them support against the Romans. He obtained several victories over the Romans; he made his way even to the fifth mile-stone from the city; and, refusing to hear a deputation that came to sue for peace, would have laid siege even to the place of his birth, had not his mother Veturia and his wife Volumnia gone out from the city to meet him, by whose tears and supplications he was prevailed on to withdraw his army. He was the next after Tarquin that acted as general against his country.
+(1) In the eighteenth year after the banishment of the royal family, Quintius Marcius, the Roman general who had taken Corioli, the city of the Volsci, being compelled to flee from Rome, directed his course, in resentment, to the Volsci themselves, and received from them support against the Romans.
+
+(2) He obtained several victories over the Romans; he made his way even to the fifth mile-stone from the city; and, refusing to hear a deputation that came to sue for peace, would have laid siege even to the place of his birth, had not his mother Veturia and his wife Volumnia gone out from the city to meet him, by whose tears and supplications he was prevailed on to withdraw his army. He was the next after Tarquin that acted as general against his country.
 
 ### XVI
 
-In the consulate of Caeso Fabius and Titus Virginius,[4] three hundred noblemen, members of the Fabian family, undertook alone a war against the Vejentes, assuring the senate and the people that the whole contest should be brought to an end by themselves. These illustrious men, therefore, each of whom was capable of commanding a large army, setting out on their expedition, all fell in battle. One only remained out of so numerous a family, who, from his extreme youth, could not be taken with them to the field. After these events a census was held in the city, in which the number of the citizens was found to be a hundred and nineteen thousand three hundred and nineteen.
+(1) In the consulate of Caeso Fabius and Titus Virginius,[4] three hundred noblemen, members of the Fabian family, undertook alone a war against the Vejentes, assuring the senate and the people that the whole contest should be brought to an end by themselves.
+
+(2) These illustrious men, therefore, each of whom was capable of commanding a large army, setting out on their expedition, all fell in battle.
+
+(3) One only remained out of so numerous a family, who, from his extreme youth, could not be taken with them to the field. After these events a census was held in the city, in which the number of the citizens was found to be a hundred and nineteen thousand three hundred and nineteen.
 
 ### XVII
 
-In the following year, in consequence of the blockade of a Roman army on Mount Algidus, about twelve miles from the city, Lucius Quintius Cincinnatus was appointed dictator; a man who, possessing only four acres of land, cultivated it with his own hands. He, being found at his work, and engaged in ploughing, assumed, after wiping the sweat from his brow, the toga praetexta; and set free the army with great slaughter among the enemy.
+(1) In the following year, in consequence of the blockade of a Roman army on Mount Algidus, about twelve miles from the city, Lucius Quintius Cincinnatus was appointed dictator; a man who, possessing only four acres of land, cultivated it with his own hands.
+
+(2) He, being found at his work, and engaged in ploughing, assumed, after wiping the sweat from his brow, the toga praetexta; and set free the army with great slaughter among the enemy.
 
 ### XVIII
 
-In the three hundred and second year from the founding of the city, the consular government ceased; and, instead of two consuls, ten magistrates were appointed to hold the supreme authority, under the title of decemviri. These during the first year conducted themselves with honour; but in the second, one of them, Appius Claudius, proceeded to offer violence to the maiden daughter of a certain Virginius, who was at that time filling an honourable post on military service against the Latins on Mount Algidus; but the father slew her with his own hand, that she might not suffer violation from the decemvir, and, returning to the army, raised an insurrection among the soldiers. Their power was in consequence taken from the decemviri, and they themselves received sentences of condemnation.[5]
+(1) In the three hundred and second year from the founding of the city, the consular government ceased; and, instead of two consuls, ten magistrates were appointed to hold the supreme authority, under the title of decemviri.
+
+(2) These during the first year conducted themselves with honour; but in the second, one of them, Appius Claudius, proceeded to offer violence to the maiden daughter of a certain Virginius, who was at that time filling an honourable post on military service against the Latins on Mount Algidus; but the father slew her with his own hand, that she might not suffer violation from the decemvir, and, returning to the army, raised an insurrection among the soldiers. Their power was in consequence taken from the decemviri, and they themselves received sentences of condemnation.[5]
 
 ### XIX
 
-In the three hundred and fifteenth year from the founding of the city, the Fidenates rebelled against the Romans. The Vejentes and their king Tolumnius gave them assistance. These two states are so near to Rome, that Fidenae is only seven, Veii only eighteen miles distant. The Volsci also joined them; but they were defeated by Marcus Aemilius the dictator, and Lucius Quintius Cincinnatus the master of the horse, and lost also their king. Fidenae was taken, and utterly destroyed.
+(1) In the three hundred and fifteenth year from the founding of the city, the Fidenates rebelled against the Romans. The Vejentes and their king Tolumnius gave them assistance.
+
+(2) These two states are so near to Rome, that Fidenae is only seven, Veii only eighteen miles distant. The Volsci also joined them; but they were defeated by Marcus Aemilius the dictator, and Lucius Quintius Cincinnatus the master of the horse, and lost also their king. Fidenae was taken, and utterly destroyed.
 
 ### XX
 
-Twenty years afterwards, the people of Veii resumed hostilities. Furius Camillus was sent as dictator against them, who first defeated them in battle, and then, after a long siege, took their city, the oldest and richest in Italy. He next took Falisci, a city of no less note. But popular odium was excited against him, on the ground that he had made an unfair division of the booty, and he was condemned on that charge and banished.
+(1) Twenty years afterwards, the people of Veii resumed hostilities. Furius Camillus was sent as dictator against them, who first defeated them in battle, and then, after a long siege, took their city, the oldest and richest in Italy.
 
-Soon after the Galli Senones marched towards Rome; and, pursuing the Romans, whom they defeated at the river Allia, eleven miles from the city, possessed themselves of the city itself, no part of which could be defended against them, except the Capitol. After they had besieged it a long time, and the Romans were suffering from famine, Camillus, who was in exile in a neighbouring city, attacked the Gauls unexpectedly, and gave them a severe defeat. Afterwards,[6] on receiving a sumin gold, to desist from the siege of the Capitol, they retreated; Camillus, however, pursued them, and routed them with such a slaughter, that he recovered both the gold which had been given to them, and all the military standards which they had taken. Thus he entered the city for the third time in triumph, and received the appellation of a second Romulus, as if he also had been a founder of the city.
+(2) He next took Falisci, a city of no less note. But popular odium was excited against him, on the ground that he had made an unfair division of the booty, and he was condemned on that charge and banished.
+
+(3) Soon after the Galli Senones marched towards Rome; and, pursuing the Romans, whom they defeated at the river Allia, eleven miles from the city, possessed themselves of the city itself, no part of which could be defended against them, except the Capitol. After they had besieged it a long time, and the Romans were suffering from famine, Camillus, who was in exile in a neighbouring city, attacked the Gauls unexpectedly, and gave them a severe defeat.
+
+(4) Afterwards,[6] on receiving a sumin gold, to desist from the siege of the Capitol, they retreated; Camillus, however, pursued them, and routed them with such a slaughter, that he recovered both the gold which had been given to them, and all the military standards which they had taken.
+
+(5) Thus he entered the city for the third time in triumph, and received the appellation of a second Romulus, as if he also had been a founder of the city.
 
 ### Notes
 
