@@ -258,31 +258,49 @@ Military tribunes created instead of consuls; Camillus overcomes the Volsci, Aeq
 
 ### XI
 
-War was at the same time proclaimed against the Tarentines (who are still a people at the extremity of Italy), because they had offered violence to some Roman ambassadors. These people asked aid against the Romans of Pyrrhus, king of Epirus, who derived his origin from the family of Achilles. He soon after passed over into Italy, and it was then that the Romans fought for the first time with an enemy from beyond sea. The consul Publius Valerius Laevinus was sent against him; who, having seized some spies of Pyrrhus, ordered them to be led through the camp, and the whole army to be exhibited to them, and then to be dismissed, that they might tell Pyrrhus whatever was going on among the Romans. An engagement taking place soon after, Pyrrhus, when on the point of fleeing, got the victory by means of his elephants, at the sight of which the Romans, to whom they were strange, were greatly terrified; but night put an end to the battle. Laevinus however fled during the night. Pyrrhus took a thousand eight hundred Romans prisoners, and treated them with the greatest honour; the slain he buried. On observing those lying dead, with their wounds in front, and with stern countenances, he is said to have lifted up his hands to heaven, exclaiming that "he might himself have been master of the whole world, if such soldiers had fallen to his lot."
+(1) War was at the same time proclaimed against the Tarentines (who are still a people at the extremity of Italy), because they had offered violence to some Roman ambassadors. These people asked aid against the Romans of Pyrrhus, king of Epirus, who derived his origin from the family of Achilles. He soon after passed over into Italy, and it was then that the Romans fought for the first time with an enemy from beyond sea.
+
+(2) The consul Publius Valerius Laevinus was sent against him; who, having seized some spies of Pyrrhus, ordered them to be led through the camp, and the whole army to be exhibited to them, and then to be dismissed, that they might tell Pyrrhus whatever was going on among the Romans. An engagement taking place soon after, Pyrrhus, when on the point of fleeing, got the victory by means of his elephants, at the sight of which the Romans, to whom they were strange, were greatly terrified;
+
+(3) But night put an end to the battle. Laevinus however fled during the night. Pyrrhus took a thousand eight hundred Romans prisoners, and treated them with the greatest honour; the slain he buried. On observing those lying dead, with their wounds in front, and with stern countenances, he is said to have lifted up his hands to heaven, exclaiming that "he might himself have been master of the whole world, if such soldiers had fallen to his lot."
 
 ### XII
 
-Pyrrhus afterwards, having united to him the Samnites, the Lucanians, and the Bruttii, proceeded towards Rome. He laid all waste with fire and sword, depopulated Campania, and advanced to Praeneste, eighteen miles from Rome. Soon after, through fear of an army which was pursuing him with a consul at its head, he fell back upon Campania. Ambassadors, who were sent to treat with Pyrrhus respecting the ransom of the captives, were honourably entertained by him; and he sent the captives back to Rome without payment. Fabricius, one of the Roman ambassadors, he admired so much, that, finding he was poor, he endeavoured to draw him over to his side with the promise of a fourth part of his kingdom, but he was repulsed with disdain by Fabricius. Pyrrhus, therefore, being struck with admiration at the character of the Romans, sent an eminent man. Cineas by name, as ambassador, to ask for peace on reasonable terms, provided that he might retain possession of that part of Italy, of which he had already become master in the war.
+(1) Pyrrhus afterwards, having united to him the Samnites, the Lucanians, and the Bruttii, proceeded towards Rome. He laid all waste with fire and sword, depopulated Campania, and advanced to Praeneste, eighteen miles from Rome.
+
+(2) Soon after, through fear of an army which was pursuing him with a consul at its head, he fell back upon Campania. Ambassadors, who were sent to treat with Pyrrhus respecting the ransom of the captives, were honourably entertained by him; and he sent the captives back to Rome without payment.
+
+(3) Fabricius, one of the Roman ambassadors, he admired so much, that, finding he was poor, he endeavoured to draw him over to his side with the promise of a fourth part of his kingdom, but he was repulsed with disdain by Fabricius.
+
+(4) Pyrrhus, therefore, being struck with admiration at the character of the Romans, sent an eminent man. Cineas by name, as ambassador, to ask for peace on reasonable terms, provided that he might retain possession of that part of Italy, of which he had already become master in the war.
 
 ### XIII
 
-Such terms of peace were not satisfactory, and an answer was returned by the senate to Pyrrhus, that "he could have no peace with the Romans, unless he retired from Italy." The Romans then ordered that all the prisoners whom Pyrrhus had sent back should be considered infamous[1] because they had suffered themselves to be taken with arms in their hands; and not to be restored to their former rank, until they had each produced the spoils of two slain enemies. Thus the ambassador of Pyrrhus returned; and, when Pyrrhus asked him "what kind of a place he had found Rome to be," Cineas replied, that "he had seen a country of kings, for that all there were such, as Pyrrhus alone was thought to be in Epirus and the rest of Greece."
+(1) Such terms of peace were not satisfactory, and an answer was returned by the senate to Pyrrhus, that "he could have no peace with the Romans, unless he retired from Italy."
 
-The consuls Publius Sulpicius and Decius Mus were sent out as generals against Pyrrhus. A battle being commenced, Pyrrhus was wounded, his elephants killed, twenty thousand of the enemy slain, and of the Romans only five thousand. Pyrrhus was forced to retire to Tarentum.
+(2) The Romans then ordered that all the prisoners whom Pyrrhus had sent back should be considered infamous[1] because they had suffered themselves to be taken with arms in their hands; and not to be restored to their former rank, until they had each produced the spoils of two slain enemies. Thus the ambassador of Pyrrhus returned;
+
+(3) And, when Pyrrhus asked him "what kind of a place he had found Rome to be," Cineas replied, that "he had seen a country of kings, for that all there were such, as Pyrrhus alone was thought to be in Epirus and the rest of Greece."
+
+(4) The consuls Publius Sulpicius and Decius Mus were sent out as generals against Pyrrhus. A battle being commenced, Pyrrhus was wounded, his elephants killed, twenty thousand of the enemy slain, and of the Romans only five thousand. Pyrrhus was forced to retire to Tarentum.
 
 ### XIV
 
-After the lapse of a year, Fabricius was sent out against Pyrrhus, the same who, when he was before among the ambassadors, could not be won with a promise of the fourth part of his kingdom. As Fabricius and the king had their camps near to each other, the physician of Pyrrhus came to Fabricius by night, offering to despatch Pyrrhus by poison, if he would promise him some remuneration; upon which Fabricius ordered that he should be taken back in chains to his master, and that information should be given to Pyrrhus of the proposals which the physician had made against his life. The king, struck with admiration of his conduct, is reported to have exclaimed on the occasion, "That excellent Fabricius is a man who can less easily be diverted from the path of honour, than the sun from its course." Pyrrhus then departed for Sicily. Fabricius, after defeating the Samnites and Lucanians, obtained a triumph.
+(1) After the lapse of a year, Fabricius was sent out against Pyrrhus, the same who, when he was before among the ambassadors, could not be won with a promise of the fourth part of his kingdom.
 
-The consuls Manius Curius Dentatus and Cornelius Lentulus were next sent against Pyrrhus; and Curius came to an engagement with him, cut off his army, drove him back to Tarentum. and took his camp. On that day were slain twenty-three thousand of the enemy. Curius Dentatus triumphed in his consulate. He was the first that brought elephants to Rome, in number, four. Pyrrhus also soon after quitted Tarentum, and was killed at Argos, a city of Greece.
+(2) As Fabricius and the king had their camps near to each other, the physician of Pyrrhus came to Fabricius by night, offering to despatch Pyrrhus by poison, if he would promise him some remuneration; upon which Fabricius ordered that he should be taken back in chains to his master, and that information should be given to Pyrrhus of the proposals which the physician had made against his life. The king, struck with admiration of his conduct, is reported to have exclaimed on the occasion,
+
+(3) "That excellent Fabricius is a man who can less easily be diverted from the path of honour, than the sun from its course." Pyrrhus then departed for Sicily. Fabricius, after defeating the Samnites and Lucanians, obtained a triumph.
+
+(4) The consuls Manius Curius Dentatus and Cornelius Lentulus were next sent against Pyrrhus; and Curius came to an engagement with him, cut off his army, drove him back to Tarentum. and took his camp. On that day were slain twenty-three thousand of the enemy. Curius Dentatus triumphed in his consulate. He was the first that brought elephants to Rome, in number, four. Pyrrhus also soon after quitted Tarentum, and was killed at Argos, a city of Greece.
 
 ### XV
 
-In the consulship of Caius Fabricius Licinus and Caius Claudius Canina, in the four hundred and sixty-first year from the foundation of the city, ambassadors, from Alexandria, despatched by Ptolemy, arrived at Rome, and obtained from the Romans the friendship which they solicited.
+(1) In the consulship of Caius Fabricius Licinus and Caius Claudius Canina, in the four hundred and sixty-first year from the foundation of the city, ambassadors, from Alexandria, despatched by Ptolemy, arrived at Rome, and obtained from the Romans the friendship which they solicited.
 
 ### XVI
 
-In the consulate of Quintus Ogulnius and Caius Fabius Pictor, the Picenians commenced a war, and were conquered by the succeeding consuls Publius Sempronius and Appius Claudius, and a triumph was celebrated over them. Two cities were founded by the Romans, Ariminum in Gaul, and Beneventum in Samnium.
+(1) In the consulate of Quintus Ogulnius and Caius Fabius Pictor, the Picenians commenced a war, and were conquered by the succeeding consuls Publius Sempronius and Appius Claudius, and a triumph was celebrated over them. Two cities were founded by the Romans, Ariminum in Gaul, and Beneventum in Samnium.
 
 ### XVII
 
@@ -290,17 +308,25 @@ When Marcus Attilius Regulus and Lucius Junius Libo were consuls, war was declar
 
 ### XVIII
 
-In the four hundred and seventy-seventh year of the city, although the Roman name had now become famous, yet their arms had not been carried out of Italy. That it might be ascertained, therefore, what the forces of the Romans were, a census was taken. On this occasion the number of citizens was found to be two hundred and ninety-two thousand, three hundred and thirty-four, although from the founding of the city wars had never ceased. It was then that the first war was undertaken against the Africans, in the consulate of Appius Claudius and Quintus Fulvius. A battle was fought with them in Sicily; and Appius Claudius obtained a triumph for a victory over the Africans and Hiero king of Sicily.
+(1) In the four hundred and seventy-seventh year of the city, although the Roman name had now become famous, yet their arms had not been carried out of Italy.
+
+(2) That it might be ascertained, therefore, what the forces of the Romans were, a census was taken. On this occasion the number of citizens was found to be two hundred and ninety-two thousand, three hundred and thirty-four, although from the founding of the city wars had never ceased. It was then that the first war was undertaken against the Africans, in the consulate of Appius Claudius and Quintus Fulvius. A battle was fought with them in Sicily; and Appius Claudius obtained a triumph for a victory over the Africans and Hiero king of Sicily.
 
 ### XIX
 
-In the year following, Valerius Marcus and Otacilius being consuls, great deeds were achieved by the Romans in Sicily. The Tauromenitani, Catanians, and fifty cities more, were received into alliance. In the third year the war against Hiero in Sicily was brought to an end. He, with all the Syracusan nobility, prevailed upon the Romans to grant them peace, paying down two hundred talents of silver. The Africans were defeated in Sicily, and a triumph over them granted at Rome a second time.
+(1) In the year following, Valerius Marcus and Otacilius being consuls, great deeds were achieved by the Romans in Sicily. The Tauromenitani, Catanians, and fifty cities more, were received into alliance.
+
+(2) In the third year the war against Hiero in Sicily was brought to an end. He, with all the Syracusan nobility, prevailed upon the Romans to grant them peace, paying down two hundred talents of silver.
+
+(3) The Africans were defeated in Sicily, and a triumph over them granted at Rome a second time.
 
 ### XX
 
-In the fifth year of the Punic war, which was carried on against the Africans, the Romans first fought by sea, in the consulate of Caius Duilius and Cnaeus Cornelius Asina, having provided themselves with vessels armed with beaks, which they term Liburnian galleys. The consul Cornelius fell a victim to treachery.12 Duilius, joining battle, defeated the commander of the Carthaginians, took thirty-one of their ships, sunk fourteen, took seven thousand of the enemy prisoners, and slew three thousand; nor was there ever a victory more gratifying to the Romans, for they were now not only invincible by land, but eminently powerful at sea.
+(1) In the fifth year of the Punic war, which was carried on against the Africans, the Romans first fought by sea, in the consulate of Caius Duilius and Cnaeus Cornelius Asina, having provided themselves with vessels armed with beaks, which they term Liburnian galleys.
 
-In the consulship of Caius Aquilius Florus and Lucius Scipio, Scipio laid waste Corsica and Sardinia, carried away several thousand captives from thence, and obtained a triumph.
+(2) The consul Cornelius fell a victim to treachery.12 Duilius, joining battle, defeated the commander of the Carthaginians, took thirty-one of their ships, sunk fourteen, took seven thousand of the enemy prisoners, and slew three thousand; nor was there ever a victory more gratifying to the Romans, for they were now not only invincible by land, but eminently powerful at sea.
+
+(3) In the consulship of Caius Aquilius Florus and Lucius Scipio, Scipio laid waste Corsica and Sardinia, carried away several thousand captives from thence, and obtained a triumph.
 
 ### XXI
 

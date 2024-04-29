@@ -266,15 +266,15 @@ Rome Captured by the Gauls, 390 BCE
 
 ### Chapter 15 
 
-C. Fabiō Liciniō C. Claudiō Canīnā cōnsulibus, annō urbis conditae quadringentēsimō sexāgēsimō prīmō, lēgātī Alexandrīnī ā Ptolemaeō missī Rōmam vēnēre et ā Rōmānīs amīcitiam, quam petierant, obtinuērunt. 
+(1) C. Fabiō Liciniō C. Claudiō Canīnā cōnsulibus, annō urbis conditae quadringentēsimō sexāgēsimō prīmō, lēgātī Alexandrīnī ā Ptolemaeō missī Rōmam vēnēre et ā Rōmānīs amīcitiam, quam petierant, obtinuērunt. 
 
 ### Chapter 16 
 
-Q. Ogulniō C. Fābiō Pīctōre cōnsulibus Pīcentēs bellum commovēre et ab īnsequentibus cōnsulibus P. Semprōniō Ap. Claudiō victī sunt et dē hīs triumphātum est. Conditae ā Rōmānīs cīvitātēs Arīminus in Galliā et Beneventum in Samniō. 
+(1) Q. Ogulniō C. Fābiō Pīctōre cōnsulibus Pīcentēs bellum commovēre et ab īnsequentibus cōnsulibus P. Semprōniō Ap. Claudiō victī sunt et dē hīs triumphātum est. Conditae ā Rōmānīs cīvitātēs Arīminus in Galliā et Beneventum in Samniō. 
 
 ### Chapter 17 
 
-M. Atīliō Rēgulō L. Iūliō Libōne cōnsulibus Sallentīnīs in Āpuliā bellum indictum est captīque sunt cum cīvitāte simul Brundisīnī et dē hīs triumphātum est. 
+(1) M. Atīliō Rēgulō L. Iūliō Libōne cōnsulibus Sallentīnīs in Āpuliā bellum indictum est captīque sunt cum cīvitāte simul Brundisīnī et dē hīs triumphātum est. 
 
 ### Chapter 18: First Punic War, 264 BCE – 241 BCE; Romans Victorious in Sicily, 264 BCE 
 
