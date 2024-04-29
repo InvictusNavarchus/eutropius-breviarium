@@ -174,15 +174,15 @@ Rome Captured by the Gauls, 390 BCE
 
 ### Chapter 3 
 
-Vērum dīgnitās tribūnōrum mīlitārium nōn diū persevērāvit. Nam post aliquantum nūllōs placuit fierī et quadriennium in urbe ita fluxit, ut potestātēs ibi māiōrēs nōn essent. Praesūmpsērunt tamen tribūnī mīlitārēs cōnsulārī potestāte iterum dīgnitātem et trienniō persevērāvērunt. Rūrsus cōnsulēs factī. 
+(1) Vērum dīgnitās tribūnōrum mīlitārium nōn diū persevērāvit. Nam post aliquantum nūllōs placuit fierī et quadriennium in urbe ita fluxit, ut potestātēs ibi māiōrēs nōn essent. Praesūmpsērunt tamen tribūnī mīlitārēs cōnsulārī potestāte iterum dīgnitātem et trienniō persevērāvērunt. Rūrsus cōnsulēs factī. 
 
 ### Chapter 4: Death of Camillus, 365 BCE 
 
-L. Genuciō et Q. Servīliō cōnsulibus mortuus est Camillus. Honor eī post Rōmulum secundus dēlātus est.  
+(1) L. Genuciō et Q. Servīliō cōnsulibus mortuus est Camillus. Honor eī post Rōmulum secundus dēlātus est.  
 
 ### Chapter 5: Invasion of the Gauls; Torquatus, 361 BCE 
 
-T. Quīntius dictātor adversus Gallōs, quī ad Ītaliam vēnerant, missus est. Hī ab urbe quārtō mīliāriō trāns Aniēnem fluvium cōnsēderant. Ibi nōbilissimus dē senātōribus iuvenis L. Mānlius prōvocantem Gallum ad singulāre certāmen prōgressus occīdit et sublātō torque aureō collōque suō impositō in perpetuum Torquātī et sibi et posterīs cognōmen accēpit. Gallī fugātī sunt, mox per C. Suplicium dictātōrem etiam victī. Nōn multō post ā C. Mārciō Tuscī victī sunt et octō mīlia captīvōrum ex hīs in triumphum ducta.  
+(1) T. Quīntius dictātor adversus Gallōs, quī ad Ītaliam vēnerant, missus est. Hī ab urbe quārtō mīliāriō trāns Aniēnem fluvium cōnsēderant. Ibi nōbilissimus dē senātōribus iuvenis L. Mānlius prōvocantem Gallum ad singulāre certāmen prōgressus occīdit et sublātō torque aureō collōque suō impositō in perpetuum Torquātī et sibi et posterīs cognōmen accēpit. Gallī fugātī sunt, mox per C. Suplicium dictātōrem etiam victī. Nōn multō post ā C. Mārciō Tuscī victī sunt et octō mīlia captīvōrum ex hīs in triumphum ducta.  
 
 ### Chapter 6: First Samnite War, 343 – 341 BCE 
 
@@ -222,7 +222,7 @@ T. Quīntius dictātor adversus Gallōs, quī ad Ītaliam vēnerant, missus est.
 
 ### Chapter 10: War with the Gauls and Etruscans, 283 BCE 
 
-Interiectīs aliquot annīs iterum sē Gallōrum cōpiae contrā Rōmānōs Tuscīs Samnītibusque iūnxērunt, sed cum Rōmam tenderent, ā Cn. Cornēliō Dolābellā cōnsule dēlētae sunt. 
+(1) Interiectīs aliquot annīs iterum sē Gallōrum cōpiae contrā Rōmānōs Tuscīs Samnītibusque iūnxērunt, sed cum Rōmam tenderent, ā Cn. Cornēliō Dolābellā cōnsule dēlētae sunt. 
 
 ### Chapter 11: War with Tarentum and Pyrrhus, 281 – 272 BCE. Battle of Heraclea, 280 BCE 
 

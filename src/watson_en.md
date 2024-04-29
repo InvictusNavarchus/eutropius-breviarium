@@ -230,21 +230,31 @@ Military tribunes created instead of consuls; Camillus overcomes the Volsci, Aeq
 
 ### VII
 
-The Latins, who had refused to furnish troops, proceeded also to demand of the Romans, that one of the consuls should be elected from their own people, the other from the Romans; this demand having been rejected, war was commenced against them, and they were overcome in a great battle; and a triumph was celebrated on account of their defeat. Statues were erected to the consuls in the Rostra, for their service in gaining this victory.
+(1) The Latins, who had refused to furnish troops, proceeded also to demand of the Romans, that one of the consuls should be elected from their own people, the other from the Romans;
+
+(2) this demand having been rejected, war was commenced against them, and they were overcome in a great battle; and a triumph was celebrated on account of their defeat. Statues were erected to the consuls in the Rostra, for their service in gaining this victory.
 
 ### VIII
 
-The Romans had now begun to be powerful; for a war was carried on by them against the Samnites, who hold a middle situation between Picenum, Campania, and Apulia, at the distance of nearly a hundred and thirty miles from the city. Lucius Papirius Cursor went to conduct that war with the rank of dictator, and, on returning to Rome, gave orders to Quintus Fabius Maximus, his master of the horse, whom he left in charge of the army, not to fight during his absence. He, however, seeing a favourable opportunity, commenced an engagement with great success, and utterly defeated the Samnites; he was accordingly condemned to death by the dictator, for fighting contrary to his orders, but was saved by the powerful interposition of the soldiers and people, so great a tumult having been excited against Papirius, that he was almost slain.
+(1) The Romans had now begun to be powerful; for a war was carried on by them against the Samnites, who hold a middle situation between Picenum, Campania, and Apulia, at the distance of nearly a hundred and thirty miles from the city.
+
+(2) Lucius Papirius Cursor went to conduct that war with the rank of dictator, and, on returning to Rome, gave orders to Quintus Fabius Maximus, his master of the horse, whom he left in charge of the army, not to fight during his absence.
+
+(3) He, however, seeing a favourable opportunity, commenced an engagement with great success, and utterly defeated the Samnites; he was accordingly condemned to death by the dictator, for fighting contrary to his orders, but was saved by the powerful interposition of the soldiers and people, so great a tumult having been excited against Papirius, that he was almost slain.
 
 ### IX
 
-The Samnites subsequently, in the consulate of Titus Veturius and Spurius Posthumius, defeated the Romans with signal ignominy, and compelled them to pass under the yoke. The peace, however, which had been concluded with them through mere necessity, was broken by the senate and people. After this the Samnites were defeated by Lucius Papirius the consul, and seven thousand of them made to pass under the yoke. Papirius was granted a triumph over the Samnites. About the same time Appius Claudius the censor brought the Claudian water into the city, and made the Appian way.
+(1) The Samnites subsequently, in the consulate of Titus Veturius and Spurius Posthumius, defeated the Romans with signal ignominy, and compelled them to pass under the yoke. The peace, however, which had been concluded with them through mere necessity, was broken by the senate and people. After this the Samnites were defeated by Lucius Papirius the consul, and seven thousand of them made to pass under the yoke. Papirius was granted a triumph over the Samnites.
 
-The Samnites, renewing the war, defeated Quintus Fabius Maximus, with the slaughter of three thousand of his troops; but afterwards, his father, Fabius Maximus, being appointed his lieutenant, he both defeated the Samnites, and took several of their towns. Subsequently, Publius Cornelius Rufinus and Manius Curius Dentatus, the two consuls, being sent against the Samnites, reduced their strength in some considerable battles. Thus they brought the war with the Samnites to an end; a war which had lasted for forty-nine years. Nor was there any enemy in Italy that put the valour of the Romans more to the test.
+(2) About the same time Appius Claudius the censor brought the Claudian water into the city, and made the Appian way. The Samnites, renewing the war, defeated Quintus Fabius Maximus, with the slaughter of three thousand of his troops; but afterwards, his father, Fabius Maximus, being appointed his lieutenant, he both defeated the Samnites, and took several of their towns.
+
+(3) Subsequently, Publius Cornelius Rufinus and Manius Curius Dentatus, the two consuls, being sent against the Samnites, reduced their strength in some considerable battles.
+
+(4) Thus they brought the war with the Samnites to an end; a war which had lasted for forty-nine years. Nor was there any enemy in Italy that put the valour of the Romans more to the test.
 
 ### X
 
-After an interval of a few years, the forces of the Gauls united with the Tuscans and Samnites against the Romans; but, as they were marching to Rome, were cut off by the consul Cnaeus Cornelius Dolabella.
+(1) After an interval of a few years, the forces of the Gauls united with the Tuscans and Samnites against the Romans; but, as they were marching to Rome, were cut off by the consul Cnaeus Cornelius Dolabella.
 
 ### XI
 
