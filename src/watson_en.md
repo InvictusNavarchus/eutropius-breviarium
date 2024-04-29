@@ -398,45 +398,59 @@ Ptolemy, king of Egypt, declines the aid offered him by the Romans against Antio
 
 ### I
 
-The Punic war being now ended, after having been protracted though three and twenty years, the Romans, who were now distinguished by transcendent glory, sent ambassadors to Ptolemy, king of Egypt, with offers of assistance; for Antiochus, king of Syria, had made war upon him. He returned thanks to the Romans, but declined their aid, the struggle being now over. About the same time. Hiero, the most powerful king of Sicily, visited Rome to witness the games, and distributed two hundred thousand modii[1] of wheat among the people.
+(1) The Punic war being now ended, after having been protracted though three and twenty years, the Romans, who were now distinguished by transcendent glory, sent ambassadors to Ptolemy, king of Egypt, with offers of assistance; for Antiochus, king of Syria, had made war upon him. He returned thanks to the Romans, but declined their aid, the struggle being now over.
+
+(2) About the same time. Hiero, the most powerful king of Sicily, visited Rome to witness the games, and distributed two hundred thousand modii[1] of wheat among the people.
 
 ### II
 
-In the consulship of Lucius Cornelius Lentulus and Fulvius Flaccus, in whose time Hiero came to Rome, war was carried on, within the limits of Italy, against the Ligurians, and a triumph obtained over them. The Carthaginians, too, at the same time, attempted to renew the war, soliciting the Sardinians, who, by an article of the peace, were bound to submit to the Romans, to rebel. A deputation, however, of the Carthaginians came to Rome, and obtained peace.
+(1) In the consulship of Lucius Cornelius Lentulus and Fulvius Flaccus, in whose time Hiero came to Rome, war was carried on, within the limits of Italy, against the Ligurians, and a triumph obtained over them. The Carthaginians, too, at the same time, attempted to renew the war, soliciting the Sardinians, who, by an article of the peace, were bound to submit to the Romans, to rebel. A deputation, however, of the Carthaginians came to Rome, and obtained peace.
 
 ### III
 
-Under the consulate of Titus Manlius Torquatus and Caius Attilius Bulbus, a triumph was obtained over the Sardinians; and, peace being concluded on all sides, the Romans had now no war on their hands, a circumstance which had happened to them but once before since the building of the city, in the reign of Numa Pompilius.
+(1) Under the consulate of Titus Manlius Torquatus and Caius Attilius Bulbus, a triumph was obtained over the Sardinians; and, peace being concluded on all sides, the Romans had now no war on their hands, a circumstance which had happened to them but once before since the building of the city, in the reign of Numa Pompilius.
 
 ### IV
 
-Lucius Posthumius Albinus and Cnaeus Fulvius Centumalus, when consuls, conducted a war against the Illyrians; and, having taken many of their towns, reduced their kings to a surrender, and it was then for the first time that a triumph was celebrated over the Illyrians.
+(1) Lucius Posthumius Albinus and Cnaeus Fulvius Centumalus, when consuls, conducted a war against the Illyrians; and, having taken many of their towns, reduced their kings to a surrender, and it was then for the first time that a triumph was celebrated over the Illyrians.
 
 ### V
 
-When Lucius Aemilius was consul, a vast force of the Gauls crossed the Alps; but all Italy united in favour of the Romans; and it is recorded by Fabius the historian, who was present in that war, that there were eight hundred thousand men ready for the contest. Affairs, however, were brought to a successful termination by the consul alone; forty thousand of the enemy were killed, and a triumph decreed to Aemilius.
+(1) When Lucius Aemilius was consul, a vast force of the Gauls crossed the Alps; but all Italy united in favour of the Romans; and it is recorded by Fabius the historian, who was present in that war, that there were eight hundred thousand men ready for the contest. Affairs, however, were brought to a successful termination by the consul alone; forty thousand of the enemy were killed, and a triumph decreed to Aemilius.
 
 ### VI
 
-A few years after, a battle was fought with the Gauls within the borders of Italy, and an end put to the war, in the consulship of Marcus Claudius Marcellus and Cnaeus Cornelius Scipio. Marcellus took the field with a small body of horse, and slew the king of the Gauls, Viridomarus, with his own hand. Afterwards, in conjunction with his colleague, he cut to pieces a numerous army of the Gauls, stormed Milan, and carried off a vast booty to Rome. Marcellus, at his triumph, bore the spoils of the Gaul, fixed upon a pole on his shoulders.
+(1) A few years after, a battle was fought with the Gauls within the borders of Italy, and an end put to the war, in the consulship of Marcus Claudius Marcellus and Cnaeus Cornelius Scipio. Marcellus took the field with a small body of horse, and slew the king of the Gauls, Viridomarus, with his own hand.
+
+(2) Afterwards, in conjunction with his colleague, he cut to pieces a numerous army of the Gauls, stormed Milan, and carried off a vast booty to Rome. Marcellus, at his triumph, bore the spoils of the Gaul, fixed upon a pole on his shoulders.
 
 ### VII
 
-In the consulate of Marcus Minucius Rufus and Publius Cornelius, war was made upon the Istrians, because they had plundered some ships of the Romans, which were bringing a supply of corn, and they were entirely subdued.
+(1) In the consulate of Marcus Minucius Rufus and Publius Cornelius, war was made upon the Istrians, because they had plundered some ships of the Romans, which were bringing a supply of corn, and they were entirely subdued.
 
-In the same year the second Punic war was commenced against the Romans by Hannibal, general of the Carthaginians, who, in the twentieth year of his age, proceeded to besiege Saguntum, a city of Spain, in alliance with the Romans, having assembled for that purpose an army of fifty thousand foot and twenty thousand horse. The Romans warned him, by deputies sent for the purpose, to desist from hostilities, but he refused them audience. The Romans sent also to Carthage, requiring that orders should be sent to Hannibal, not to make war on the allies of the Roman people; but the reply made by the Carthaginians promised no compliance. The Saguntines in the meantime, worn out with famine, were taken by Hannibal, and put to death with the utmost cruelty.
+(2) In the same year the second Punic war was commenced against the Romans by Hannibal, general of the Carthaginians, who, in the twentieth year of his age, proceeded to besiege Saguntum, a city of Spain, in alliance with the Romans, having assembled for that purpose an army of fifty thousand foot and twenty thousand horse.
+
+(3) The Romans warned him, by deputies sent for the purpose, to desist from hostilities, but he refused them audience. The Romans sent also to Carthage, requiring that orders should be sent to Hannibal, not to make war on the allies of the Roman people; but the reply made by the Carthaginians promised no compliance. The Saguntines in the meantime, worn out with famine, were taken by Hannibal, and put to death with the utmost cruelty.
 
 ### VIII
 
-Publius Cornelius Scipio then went with an army into Spain, and Tiberius Sempronius into Sicily. War was declared against the Carthaginians. Hannibal, leaving his brother Hasdrubal in Spain, passed the Pyrenees, and made a way over the Alps, which, in that part, were previously impassable. He is said to have brought into Italy eighty thousand foot, twenty thousand horse, and thirty-seven elephants. Numbers of the Ligurians and Gauls joined him on his march. Sempronius Gracchus, hearing of Hannibal's arrival in Italy, conveyed over his army from Sicily to Ariminum.
+(1) Publius Cornelius Scipio then went with an army into Spain, and Tiberius Sempronius into Sicily. War was declared against the Carthaginians.
+
+(2) Hannibal, leaving his brother Hasdrubal in Spain, passed the Pyrenees, and made a way over the Alps, which, in that part, were previously impassable. He is said to have brought into Italy eighty thousand foot, twenty thousand horse, and thirty-seven elephants. Numbers of the Ligurians and Gauls joined him on his march. Sempronius Gracchus, hearing of Hannibal's arrival in Italy, conveyed over his army from Sicily to Ariminum.
 
 ### IX
 
-The first to meet Hannibal was Publius Cornelius Scipio; a battle being commenced, and his troops put to flight, he retired wounded into his camp. Sempronius Gracchus also came to an engagement with him near the river Trebia, and he too was defeated. Numbers in Italy submitted to Hannibal; who, marching from thence into Tuscany, encountered the consul Flaminius. Flaminius himself he cut off; and twenty-five thousand of the Romans were slain; the rest saved themselves by flight. Quintus Fabius Maximus was afterwards sent by the Romans to oppose Hannibal. This general, by avoiding an engagement, checked his impetuosity; and soon after, finding a favourable opportunity, defeated him.
+(1) The first to meet Hannibal was Publius Cornelius Scipio; a battle being commenced, and his troops put to flight, he retired wounded into his camp. Sempronius Gracchus also came to an engagement with him near the river Trebia, and he too was defeated. Numbers in Italy submitted to Hannibal;
+
+(2) Who, marching from thence into Tuscany, encountered the consul Flaminius. Flaminius himself he cut off; and twenty-five thousand of the Romans were slain; the rest saved themselves by flight. Quintus Fabius Maximus was afterwards sent by the Romans to oppose Hannibal. This general, by avoiding an engagement, checked his impetuosity; and soon after, finding a favourable opportunity, defeated him.
 
 ### X
 
-In the five hundred and fortieth year from the foundation of the city, Lucius Aemilius and Publius Terentius Varro were sent against Hannibal, and took the place of Fabius, who forewarned both the consuls, that they could conquer Hannibal, who was a bold and energetic leader, only by declining a pitched battle with him. But an engagement being brought on, through the impetuosity of the consul Varro, in opposition to his colleague, near a village called Cannae, in Apulia, both the consuls were defeated by Hannibal. In this battle three thousand of the Africans fell, and a great part of Hannibal's army were wounded. The Romans, however, never received so severe a blow at any period of the Punic wars; for the consul Aemilius Paulus was killed; twenty officers of consular and praetorian rank, thirty senators, and three hundred others of noble descent, were taken or slain, as well as forty thousand foot-soldiers, and three thousand five hundred horse. During all these calamities, however, not one of the Romans deigned to speak of peace. A number of slaves were set free and made soldiers, a measure never before adopted.
+(1) In the five hundred and fortieth year from the foundation of the city, Lucius Aemilius and Publius Terentius Varro were sent against Hannibal, and took the place of Fabius, who forewarned both the consuls, that they could conquer Hannibal, who was a bold and energetic leader, only by declining a pitched battle with him.
+
+(2) But an engagement being brought on, through the impetuosity of the consul Varro, in opposition to his colleague, near a village called Cannae, in Apulia, both the consuls were defeated by Hannibal.
+
+(3) In this battle three thousand of the Africans fell, and a great part of Hannibal's army were wounded. The Romans, however, never received so severe a blow at any period of the Punic wars; for the consul Aemilius Paulus was killed; twenty officers of consular and praetorian rank, thirty senators, and three hundred others of noble descent, were taken or slain, as well as forty thousand foot-soldiers, and three thousand five hundred horse. During all these calamities, however, not one of the Romans deigned to speak of peace. A number of slaves were set free and made soldiers, a measure never before adopted.
 
 ### XI
 
