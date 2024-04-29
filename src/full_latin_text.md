@@ -134,7 +134,7 @@ War with Tarquinius
 
 ### Chapter 18: Decemvirs Appointed, 451 BCE. Laws of XII Tables Promulgated, 450 BCE. Death of Virginia; Decemvirs Deposed, 449 BCE 
 
- (1) Annō trecentēsimō et alterō ab urbe conditā imperium cōnsulāre cessāvit et prō duōbus cōnsulibus decem factī sunt, quī summam potestātem habērent, decemvirī nōminātī. 
+(1) Annō trecentēsimō et alterō ab urbe conditā imperium cōnsulāre cessāvit et prō duōbus cōnsulibus decem factī sunt, quī summam potestātem habērent, decemvirī nōminātī. 
 
 (2) Sed cum prīmō annō bene ēgissent, secundō ūnus ex hīs, Ap. Claudius, Virgīniī cūiusdam, quī honestīs iam stīpendiīs contrā Latīnōs in monte Algidō mīlitābat, fīliam virginem corrumpere voluit. Quam pater occīdit, nē stuprum ā decemvirō sustinēret, et regressus ad mīlitēs mōvit tumultum. Sublāta est decemvirīs potestās ipsīque damnātī sunt. 
 
