@@ -4,11 +4,11 @@
 
 ​DOMINO VALENTI 
 
-GOTHICO MAXIMO PERPETUO AUGUSTO 
+(1) GOTHICO MAXIMO PERPETUO AUGUSTO 
 
-EUTROPIUS V. C. MAGISTER MEMORIAE 
+(1) EUTROPIUS V. C. MAGISTER MEMORIAE 
 
-Rēs Rōmānās ex voluntāte mānsuētūdinis tuae ab urbe conditā ad nostram memoriam, quae in negōtiīs vel bellicīs vel cīvīlibus ēminēbant, per ōrdinem temporum brevī nārrātiōne collēgī, strictim additīs etiam hīs, quae in prīncipum vītā ēgregia extitērunt, ut tranquillitātis tuae possit mēns dīvīna laetārī prius sē inlūstrium virōrum facta in administrandō imperiō secūtam, quam cognōsceret lēctiōne.
+(1) Rēs Rōmānās ex voluntāte mānsuētūdinis tuae ab urbe conditā ad nostram memoriam, quae in negōtiīs vel bellicīs vel cīvīlibus ēminēbant, per ōrdinem temporum brevī nārrātiōne collēgī, strictim additīs etiam hīs, quae in prīncipum vītā ēgregia extitērunt, ut tranquillitātis tuae possit mēns dīvīna laetārī prius sē inlūstrium virōrum facta in administrandō imperiō secūtam, quam cognōsceret lēctiōne.
 
 ## Book 1: From the Founding of Rome to the Capture of the City by the Gauls, 753 – 390 BCE. The Regal Period, 753 – 509 BCE 
 
@@ -358,7 +358,7 @@ Regulus Sent to Rome to Solicit Peace, 250 BCE
 
 ### Chapter 28 
 
-Q. Lutātius A. Mānlius cōnsulēs creātī sunt. Bellum Faliscīs intulērunt, quae cīvitātēs Ītaliae opulenta quondam fuit. Quod ambō cōnsulēs intrā sex dies, quam vēnerant, trānsēgērunt XV mīlibus hostium caesīs, cēterīs pace concessā, agrō tamen ex medietāte sublātō. 
+(1) Q. Lutātius A. Mānlius cōnsulēs creātī sunt. Bellum Faliscīs intulērunt, quae cīvitātēs Ītaliae opulenta quondam fuit. Quod ambō cōnsulēs intrā sex dies, quam vēnerant, trānsēgērunt XV mīlibus hostium caesīs, cēterīs pace concessā, agrō tamen ex medietāte sublātō. 
 
 ## Book 3: From the End of the First to the End of the Second Punic War, 241 – 201 BCE 
 
@@ -370,19 +370,19 @@ Q. Lutātius A. Mānlius cōnsulēs creātī sunt. Bellum Faliscīs intulērunt,
 
 ### Chapter 2: Sardinia Taken by the Romans, 237 BCE 
 
-L. Cornēliō Lentulō Fulviō Flaccō cōnsulibus, quibus Hierō Rōmam vēnerat, etiam contrā Ligurēs intrā Ītaliam bellum gestum est et dē hīs triumphātum. Carthāginiēnsēs tamen bellum reparāre temptābant, Sardiniēnsēs, quī ex condiciōne pācis Rōmānīs pārēre dēbēbant, ad rebellandum impellentēs. Vēnit tamen Rōmam lēgātiō Carthāginiēnsium et pācem impetrāvit.  
+(1) L. Cornēliō Lentulō Fulviō Flaccō cōnsulibus, quibus Hierō Rōmam vēnerat, etiam contrā Ligurēs intrā Ītaliam bellum gestum est et dē hīs triumphātum. Carthāginiēnsēs tamen bellum reparāre temptābant, Sardiniēnsēs, quī ex condiciōne pācis Rōmānīs pārēre dēbēbant, ad rebellandum impellentēs. Vēnit tamen Rōmam lēgātiō Carthāginiēnsium et pācem impetrāvit.  
 
 ### Chapter 3 
 
-T. Mānliō Torquātō C. Atīliō Bulcō cōnsulibus dē Sardīs triumphātum est et pāce omnibus locīs factā Rōmānī nūllum bellum habuērunt, quod hīs post Rōmam conditam semel tantum Numā Pompiliō rēgnante contigerat. 
+(1) T. Mānliō Torquātō C. Atīliō Bulcō cōnsulibus dē Sardīs triumphātum est et pāce omnibus locīs factā Rōmānī nūllum bellum habuērunt, quod hīs post Rōmam conditam semel tantum Numā Pompiliō rēgnante contigerat. 
 
 ### Chapter 4: War with the Illyrians, 229 BCE 
 
-L. Postumius Albīnus Cn. Fulvius Centumalus cōnsulēs bellum contrā Īllyriōs gessērunt et multīs cīvitātibus captīs etiam rēgēs in dēditiōnem accēpērunt. Ac tum prīmum ex Īllyriīs triumphātum est. 
+(1) L. Postumius Albīnus Cn. Fulvius Centumalus cōnsulēs bellum contrā Īllyriōs gessērunt et multīs cīvitātibus captīs etiam rēgēs in dēditiōnem accēpērunt. Ac tum prīmum ex Īllyriīs triumphātum est. 
 
 ### Chapter 5: Invasion of the Gauls, 225 BCE 
 
-L. Aemiliō cōnsule ingentēs Gallōrum cōpiae Alpēs trānsiērunt. Sed prō Rōmānīs tōta Ītalia cōnsēnsit trāditumque est ā Fabiō historicō, quī eī bellō interfuit, DCCC mīlia hominum parāta ad id bellum fuisse. Sed rēs per cōnsulem tantum prōsperē gesta est. XL mīlia hostium interfecta sunt et triumphus Aemiliō dēcrētus.  
+(1) L. Aemiliō cōnsule ingentēs Gallōrum cōpiae Alpēs trānsiērunt. Sed prō Rōmānīs tōta Ītalia cōnsēnsit trāditumque est ā Fabiō historicō, quī eī bellō interfuit, DCCC mīlia hominum parāta ad id bellum fuisse. Sed rēs per cōnsulem tantum prōsperē gesta est. XL mīlia hostium interfecta sunt et triumphus Aemiliō dēcrētus.  
 
 ### Chapter 6 
 
@@ -466,7 +466,7 @@ L. Aemiliō cōnsule ingentēs Gallōrum cōpiae Alpēs trānsiērunt. Sed prō 
 
 ### Chapter 17 
 
-Tertiō annō, postquam Scīpiō ad Hispāniās profectus fuerat, rūrsus rēs inclitās gerit. Rēgem Hispāniārum māgnō proeliō victum in amīcitiam accēpit et prīmus omnium ā victō obsidēs nōn poposcit. 
+(1) Tertiō annō, postquam Scīpiō ad Hispāniās profectus fuerat, rūrsus rēs inclitās gerit. Rēgem Hispāniārum māgnō proeliō victum in amīcitiam accēpit et prīmus omnium ā victō obsidēs nōn poposcit. 
 
 ### Chapter 18: Battle of Metaurus, 207 BCE 
 
@@ -478,7 +478,7 @@ Tertiō annō, postquam Scīpiō ad Hispāniās profectus fuerat, rūrsus rēs i
 
 ### Chapter 19 
 
-Q. Caeciliō L. Valeriō cōnsulibus omnēs cīvitātēs, quae in Brittiīs ab Hannibale tenēbantur, Rōmānīs sē trādidērunt. 
+(1) Q. Caeciliō L. Valeriō cōnsulibus omnēs cīvitātēs, quae in Brittiīs ab Hannibale tenēbantur, Rōmānīs sē trādidērunt. 
 
 ### Chapter 20: Scipio Crosses into Africa, 204 BCE 
 
@@ -516,7 +516,7 @@ Q. Caeciliō L. Valeriō cōnsulibus omnēs cīvitātēs, quae in Brittiīs ab H
 
 ### Chapter 1: Second Macedonian War, 200 – 106 BCE 
 
-Trānsāctō Pūnicō bellō secūtum est Macedonicum contrā Philippum rēgem quīngentēsimō quīnquāgēsimō et prīmō annō ab urbe conditā. 
+(1) Trānsāctō Pūnicō bellō secūtum est Macedonicum contrā Philippum rēgem quīngentēsimō quīnquāgēsimō et prīmō annō ab urbe conditā. 
 
 ### Chapter 2 
 
@@ -582,7 +582,7 @@ Trānsāctō Pūnicō bellō secūtum est Macedonicum contrā Philippum rēgem q
 
 ### Chapter 11 
 
-Per idem tempus Masinissa rēx Numidārum per annōs sexāgintā ferē amicus populī Rōmānī annō vītae nōnāgēsimō septimō mortuus quadrāgintā quattuor fīliīs relīctīs Scīpiōnem dīvīsōrem rēgnī inter fīliōs suōs esse iussit. 
+(1) Per idem tempus Masinissa rēx Numidārum per annōs sexāgintā ferē amicus populī Rōmānī annō vītae nōnāgēsimō septimō mortuus quadrāgintā quattuor fīliīs relīctīs Scīpiōnem dīvīsōrem rēgnī inter fīliōs suōs esse iussit. 
 
 ### Chapter 12 
 
@@ -592,7 +592,7 @@ Per idem tempus Masinissa rēx Numidārum per annōs sexāgintā ferē amicus po
 
 ### Chapter 13 
 
-Interim in Macedoniā quīdam Pseudophilippus arma mōvit et Rōmānum praetōrem P. Iuventium contrā sē missum ad interneciōnem vīcit. Post eum Q. Caecilius Metellus dux ā Rōmānīs contrā Pseudophilippum missus est et XXV mīlibus ēius occīsīs Macedoniam recēpit. Ipsum etiam Pseudophilippum in potestātem suam redēgit. 
+(1) Interim in Macedoniā quīdam Pseudophilippus arma mōvit et Rōmānum praetōrem P. Iuventium contrā sē missum ad interneciōnem vīcit. Post eum Q. Caecilius Metellus dux ā Rōmānīs contrā Pseudophilippum missus est et XXV mīlibus ēius occīsīs Macedoniam recēpit. Ipsum etiam Pseudophilippum in potestātem suam redēgit. 
 
 ### Chapter 14: Destruction of Corinth, 146 BCE 
 
@@ -602,7 +602,7 @@ Interim in Macedoniā quīdam Pseudophilippus arma mōvit et Rōmānum praetōre
 
 ### Chapter 15 
 
-Iterum in Macedoniā Pseudopersēs, quī sē Perseī fīlium esse dīcēbat, collēctīs servitiīs rebellāvit et, cum sēdecim mīlia armātōrum habēret, ā Tremelliō quaestōre superātus est. 
+(1) Iterum in Macedoniā Pseudopersēs, quī sē Perseī fīlium esse dīcēbat, collēctīs servitiīs rebellāvit et, cum sēdecim mīlia armātōrum habēret, ā Tremelliō quaestōre superātus est. 
 
 ### Chapter 16: Celtiberian War, 154 BCE 
 
@@ -620,11 +620,11 @@ Iterum in Macedoniā Pseudopersēs, quī sē Perseī fīlium esse dīcēbat, col
 
 ### Chapter 18 
 
-Eōdem tempore Attalus, rēx Asiae frāter Eumenis, mortuus est hērēdemque populum Rōmānum relīquit. Ita imperiō Rōmānō per testāmentum Asia accessit. 
+(1) Eōdem tempore Attalus, rēx Asiae frāter Eumenis, mortuus est hērēdemque populum Rōmānum relīquit. Ita imperiō Rōmānō per testāmentum Asia accessit. 
 
 ### Chapter 19 
 
-Mox etiam D. Iūnius Brūtus dē Callaecīs et Lūsitānīs māgnā glōriā triumphāvit et P. Scīpiō Āfricānus dē Numantīs secundum triumphum ēgit quartō decimō annō postquam priōrem dē Āfricā ēgerat. 
+(1) Mox etiam D. Iūnius Brūtus dē Callaecīs et Lūsitānīs māgnā glōriā triumphāvit et P. Scīpiō Āfricānus dē Numantīs secundum triumphum ēgit quartō decimō annō postquam priōrem dē Āfricā ēgerat. 
 
 ### Chapter 20: War with Aristonicus, 131 BCE 
 
@@ -634,23 +634,23 @@ Mox etiam D. Iūnius Brūtus dē Callaecīs et Lūsitānīs māgnā glōriā tri
 
 ### Chapter 21 
 
-L. Caeciliō Metellō et T. Quīntiō Flāminīnō cōnsulibus Carthāgō in Āfricā iussū senātūs reparāta est, quae nunc manet, annīs duōbus et vīgintī postquam ā Scīpiōne fuerat ēversa. Dēductī eō sunt cīvēs Rōmānī. 
+(1) L. Caeciliō Metellō et T. Quīntiō Flāminīnō cōnsulibus Carthāgō in Āfricā iussū senātūs reparāta est, quae nunc manet, annīs duōbus et vīgintī postquam ā Scīpiōne fuerat ēversa. Dēductī eō sunt cīvēs Rōmānī. 
 
 ### Chapter 22: War with Transalpine Gauls, 125 – 121 BCE 
 
-Annō sexcentēsimō vīcēsimō septimō ab urbe conditā C. Cassius Longīnus et Sex. Domitius Calvīnus cōnsulēs Gallīs trānsalpīnīs bellum intulērunt et Arvernōrum tunc nōbilissimae cīvitātī atque eōrum ducī Bituītō īnfīnītamque multitūdinem iūxtā Rhodanum fluvium interfēcērunt. Praeda ex torquibus Gallōrum ingēns Rōmam perlāta est. Bituītus sē Domitiō dedit atque ab eō Rōmam dēductus est māgnāque glōriā cōnsulēs ambō triumphāvērunt. 
+(1) Annō sexcentēsimō vīcēsimō septimō ab urbe conditā C. Cassius Longīnus et Sex. Domitius Calvīnus cōnsulēs Gallīs trānsalpīnīs bellum intulērunt et Arvernōrum tunc nōbilissimae cīvitātī atque eōrum ducī Bituītō īnfīnītamque multitūdinem iūxtā Rhodanum fluvium interfēcērunt. Praeda ex torquibus Gallōrum ingēns Rōmam perlāta est. Bituītus sē Domitiō dedit atque ab eō Rōmam dēductus est māgnāque glōriā cōnsulēs ambō triumphāvērunt. 
 
 ### Chapter 23 
 
-M. Porciō Catōne et Q. Mārciō Rēge cōnsulibus, sexcentēsimō trīcēsimō et tertiō annō ab urbe conditā, Narbōne in Galliā colōniā dēducta est annōque post ā L. Caeciliō Metellō et Q. Mūciō Scaevolā cōnsulibus dē Dalmatiā triumphātum est. 
+(1) M. Porciō Catōne et Q. Mārciō Rēge cōnsulibus, sexcentēsimō trīcēsimō et tertiō annō ab urbe conditā, Narbōne in Galliā colōniā dēducta est annōque post ā L. Caeciliō Metellō et Q. Mūciō Scaevolā cōnsulibus dē Dalmatiā triumphātum est. 
 
 ### Chapter 24 
 
-Ab urbe conditā annō sexcentēsimō trīcēsimō quīntō C. Catō cōnsul Scordiscīs intulit bellum ignōminiōsēque pūgnāvit. 
+(1) Ab urbe conditā annō sexcentēsimō trīcēsimō quīntō C. Catō cōnsul Scordiscīs intulit bellum ignōminiōsēque pūgnāvit. 
 
 ### Chapter 25 
 
-C. Caeciliō Metellō et Cn. Carbōne cōnsulibus duo Metellī frātrēs eōdem diē, alterum ex Sardiniā, alterum ex Thrāciā, triumphum ēgērunt nūntiātumque Rōmae est Cimbrōs ē Galliā in Ītaliam trānsisse. 
+(1) C. Caeciliō Metellō et Cn. Carbōne cōnsulibus duo Metellī frātrēs eōdem diē, alterum ex Sardiniā, alterum ex Thrāciā, triumphum ēgērunt nūntiātumque Rōmae est Cimbrōs ē Galliā in Ītaliam trānsisse. 
 
 ### Chapter 26: War with Jugurtha, 111 – 104 BCE 
 
@@ -755,11 +755,11 @@ C. Caeciliō Metellō et Cn. Carbōne cōnsulibus duo Metellī frātrēs eōdem 
 
 ### Chapter 3: War with the Isaurians, 78 BCE 
 
-Ad Ciliciam et Pamphȳliam missus est P. Servīlius ex cōnsule vir strēnuus. Is Ciliciam subēgit, Lyciae urbēs clārissimās oppūgnāvit et cēpit, in hīs Phasēlidam, Olympum, Cōrycum. Isaurōs quoque adgressus in diciōnem redēgit atque intrā triennium bellō fīnem dedit. Prīmus omnium Rōmānōrum in Taurō iter fēcit. Revertēns triumphum accēpit et nōmen Isauricī meruit. 
+(1) Ad Ciliciam et Pamphȳliam missus est P. Servīlius ex cōnsule vir strēnuus. Is Ciliciam subēgit, Lyciae urbēs clārissimās oppūgnāvit et cēpit, in hīs Phasēlidam, Olympum, Cōrycum. Isaurōs quoque adgressus in diciōnem redēgit atque intrā triennium bellō fīnem dedit. Prīmus omnium Rōmānōrum in Taurō iter fēcit. Revertēns triumphum accēpit et nōmen Isauricī meruit. 
 
 ### Chapter 4 
 
-Ad Īllyricum missus est C. Coscōnius prō cōnsule. Multam partem Dalmatiae subēgit, Salōnās cēpit et conpositō bellō Rōmam post biennium rediit. 
+(1) Ad Īllyricum missus est C. Coscōnius prō cōnsule. Multam partem Dalmatiae subēgit, Salōnās cēpit et conpositō bellō Rōmam post biennium rediit. 
 
 ### Chapter 5 
 
@@ -799,7 +799,7 @@ Ad Īllyricum missus est C. Coscōnius prō cōnsule. Multam partem Dalmatiae su
 
 ### Chapter 10  
 
-Alter autem Lūcullus, quī Macedoniam administrābat, Bessīs prīmus Rōmānōrum intulit bellum atque eōs ingentī proeliō in Haemō monte superāvit. Oppidum Uscudamam, quod Bessī habitābant, eōdem diē, quō adgressus est, vīcit, Cabylēn cēpit, ūsque ad Dānuvium penetrāvit. Inde multās suprā Pontum positās cīvitātēs adgressus est. Illīc Appolloniam ēvertit, Callatim, Parthenopolim, Tomōs, Histrum, Burziaonem cēpit bellōque cōnfectō Rōmam rediit. Ambō tamen triumphāvērunt, Lūcullus, quī contrā Mithradātēn pūgnāverat, māiore glōriā, cum tantōrum rēgnōrum victor redīsset.  
+(1) Alter autem Lūcullus, quī Macedoniam administrābat, Bessīs prīmus Rōmānōrum intulit bellum atque eōs ingentī proeliō in Haemō monte superāvit. Oppidum Uscudamam, quod Bessī habitābant, eōdem diē, quō adgressus est, vīcit, Cabylēn cēpit, ūsque ad Dānuvium penetrāvit. Inde multās suprā Pontum positās cīvitātēs adgressus est. Illīc Appolloniam ēvertit, Callatim, Parthenopolim, Tomōs, Histrum, Burziaonem cēpit bellōque cōnfectō Rōmam rediit. Ambō tamen triumphāvērunt, Lūcullus, quī contrā Mithradātēn pūgnāverat, māiore glōriā, cum tantōrum rēgnōrum victor redīsset.  
 
 ### Chapter 11 
 
@@ -819,7 +819,7 @@ Alter autem Lūcullus, quī Macedoniam administrābat, Bessīs prīmus Rōmānō
 
 ### Chapter 13 
 
-Tigrānī deinde Pompēius bellum intulit. Ille sē eī dēdidit et in castra Pompēīī sextō decimō mīliāriō ab Artaxatā vēnit ac diadēma suum, cum prōcubuisset ad genua Pompēīī, in manibus ipsīus collocāvit. Quod eī Pompēius reposuit honorificēque eum habitum rēgnī tamen parte multāvit et grandī pecūniā. Adēmpta est eī Syria, Phoenīcē, Sophanēnē, sex mīlia praetereā talentōrum argentī, quae populō Rōmānō daret, quia bellum sine causā Rōmānīs commōvisset.  
+(1) Tigrānī deinde Pompēius bellum intulit. Ille sē eī dēdidit et in castra Pompēīī sextō decimō mīliāriō ab Artaxatā vēnit ac diadēma suum, cum prōcubuisset ad genua Pompēīī, in manibus ipsīus collocāvit. Quod eī Pompēius reposuit honorificēque eum habitum rēgnī tamen parte multāvit et grandī pecūniā. Adēmpta est eī Syria, Phoenīcē, Sophanēnē, sex mīlia praetereā talentōrum argentī, quae populō Rōmānō daret, quia bellum sine causā Rōmānīs commōvisset.  
 
 ### Chapter 14: Pompey Subdues Syria and Palestine, 64 BCE 
 
@@ -829,11 +829,11 @@ Tigrānī deinde Pompēius bellum intulit. Ille sē eī dēdidit et in castra Po
 
  Chapter 15: Cicero Consul. Conspiracy of Catiline, 63 BCE 
 
-M. Tulliō Cicerōne ōrātōre et C. Antōniō cōnsulibus, annō ab urbe conditā sexcentēsimō octōgēsimō nōnō, L. Sergius Catilīna, nōbilissimī generis vir, sed ingeniī prāvissimī, ad dēlendam patriam coniūrāvit cum quibusdam clārīs quidem, sed audācibus virīs. Ā Cicerōne urbe expulsus est. Sociī ēius dēprehēnsī in carcere strangulātī sunt, ab Antōniō alterō cōnsule Catilīna ipse victus proeliō est interfectus.  
+(1) M. Tulliō Cicerōne ōrātōre et C. Antōniō cōnsulibus, annō ab urbe conditā sexcentēsimō octōgēsimō nōnō, L. Sergius Catilīna, nōbilissimī generis vir, sed ingeniī prāvissimī, ad dēlendam patriam coniūrāvit cum quibusdam clārīs quidem, sed audācibus virīs. Ā Cicerōne urbe expulsus est. Sociī ēius dēprehēnsī in carcere strangulātī sunt, ab Antōniō alterō cōnsule Catilīna ipse victus proeliō est interfectus.  
 
 ### Chapter 16: Triumphs of Metellus and Pompey, 62 BCE 
 
-Sexcentēsimō nōnāgēsimō annō urbis conditae, D. Iūniō Sīlānō et L. Mūrēnā cōnsulibus, Metellus dē Crētā triumphāvit, Pompēius dē bellō pirāticō et Mithridāticō. Nūlla umquam pompa triumphī similis fuit. Ductī sunt ante ēius currum fīliī Mithridātis, fīlius Tigrānis et Aristobūlus rēx Iūdaeōrum; praelāta est ingēns pecūnia et aurī atque argentī īnfīnītum pondus. Hōc tempore nūllum per orbem terrārum grave bellum erat. 
+(1) Sexcentēsimō nōnāgēsimō annō urbis conditae, D. Iūniō Sīlānō et L. Mūrēnā cōnsulibus, Metellus dē Crētā triumphāvit, Pompēius dē bellō pirāticō et Mithridāticō. Nūlla umquam pompa triumphī similis fuit. Ductī sunt ante ēius currum fīliī Mithridātis, fīlius Tigrānis et Aristobūlus rēx Iūdaeōrum; praelāta est ingēns pecūnia et aurī atque argentī īnfīnītum pondus. Hōc tempore nūllum per orbem terrārum grave bellum erat. 
 
 ### Chapter 17: Caesar Consul, 59 BCE. Governor of Gaul, 58 – 49 BCE 
 
@@ -889,11 +889,11 @@ Sexcentēsimō nōnāgēsimō annō urbis conditae, D. Iūniō Sīlānō et L. M
 
 ### Chapter 24: Battle of Munda, 45 BCE 
 
-Post annum Caesar Rōmam regressus quārtō sē cōnsulem fēcit et statim ad Hispāniās est profectus, ubi Pompēīī fīliī, Cn. Pompēius et Sextus Pompēius, ingēns bellum praeparāverant. Multa proelia fuērunt, ultimum apud Mundam cīvitātem, in quō adeō Caesar paene victus est, ut fugientibus suīs sē voluerit occīdere, nē post tantam reī mīlitāris glōriam in potestātem adulēscentium nātus annōs sex et quīnquāgintā venīret. Dēnique reparātīs suīs vīcit. Ex Pompēīī fīliīs māior occīsus est, minor fūgit. 
+(1) Post annum Caesar Rōmam regressus quārtō sē cōnsulem fēcit et statim ad Hispāniās est profectus, ubi Pompēīī fīliī, Cn. Pompēius et Sextus Pompēius, ingēns bellum praeparāverant. Multa proelia fuērunt, ultimum apud Mundam cīvitātem, in quō adeō Caesar paene victus est, ut fugientibus suīs sē voluerit occīdere, nē post tantam reī mīlitāris glōriam in potestātem adulēscentium nātus annōs sex et quīnquāgintā venīret. Dēnique reparātīs suīs vīcit. Ex Pompēīī fīliīs māior occīsus est, minor fūgit. 
 
 ### Chapter 25: Caesar Monarch, 45 BCE. Caesar Assassinated, 44 CBE 
 
-Inde Caesar bellīs cīvīlibus tōtō orbe conpositīs Rōmam rediit. Agere īnsolentius coepit et contrā cōnsuētūdinem Rōmānae lībertātis. Cum ergō et honōrēs ex suā voluntāte praestāret, quī ā populō anteā dēferēbantur, nec senātuī ad sē venientī adsurgeret aliquae rēgia et paene tyrannica faceret, coniūrātum est in eum ā sexāgintā vel amplius senātōribus equitibusque Rōmānīs. Praecipuī fuērunt inter coniūrātōs duo Brūtī ex eō genere Brūtī, quī prīmus Rōmae consul fuerat et rēgēs expulerat, et C. Cassius et Servīlius Casca. Ergō Caesar, cum senātūs diē inter cēterōs vēnisset ad cūriam, tribus et vīgintī vulneribus cōnfossus est.
+(1) Inde Caesar bellīs cīvīlibus tōtō orbe conpositīs Rōmam rediit. Agere īnsolentius coepit et contrā cōnsuētūdinem Rōmānae lībertātis. Cum ergō et honōrēs ex suā voluntāte praestāret, quī ā populō anteā dēferēbantur, nec senātuī ad sē venientī adsurgeret aliquae rēgia et paene tyrannica faceret, coniūrātum est in eum ā sexāgintā vel amplius senātōribus equitibusque Rōmānīs. Praecipuī fuērunt inter coniūrātōs duo Brūtī ex eō genere Brūtī, quī prīmus Rōmae consul fuerat et rēgēs expulerat, et C. Cassius et Servīlius Casca. Ergō Caesar, cum senātūs diē inter cēterōs vēnisset ad cūriam, tribus et vīgintī vulneribus cōnfossus est.
 
 ## Book 7: 
 
@@ -921,11 +921,11 @@ Inde Caesar bellīs cīvīlibus tōtō orbe conpositīs Rōmam rediit. Agere īn
 
 ### Chapter 4: War with Sextus Pompey 
 
-Interim ā Sex. Pompēiō, Cn. Pompēīī Māgnī fīliō ingēns bellum in Siciliā commōtum est, hīs quī superfuerant ex partibus Brūtī Cassiīque ad eum cōnfluentibus. Bellātum per Caesarem Augustum Octāviānum et M. Antōnium adversus Sex. Pompēium est. Pāx postrēmō convēnit. 
+(1) Interim ā Sex. Pompēiō, Cn. Pompēīī Māgnī fīliō ingēns bellum in Siciliā commōtum est, hīs quī superfuerant ex partibus Brūtī Cassiīque ad eum cōnfluentibus. Bellātum per Caesarem Augustum Octāviānum et M. Antōnium adversus Sex. Pompēium est. Pāx postrēmō convēnit. 
 
 ### Chapter 5 
 
-Eō tempore M. Agrippa in Aquītāniā rem prōsperē gessit et L. Ventidius Bassus inrumpentēs in Syriam Persās tribus proeliīs vīcit. Pacorum rēgis Orōdis fīlium interfēcit eō ipsō diē, quō ōlim Orōdēs Persārum rēx per ducem Surēnam Crassum occīderat. Hīc prīmus dē Parthīs iūstissimum triumphum Rōmae ēgit.  
+(1) Eō tempore M. Agrippa in Aquītāniā rem prōsperē gessit et L. Ventidius Bassus inrumpentēs in Syriam Persās tribus proeliīs vīcit. Pacorum rēgis Orōdis fīlium interfēcit eō ipsō diē, quō ōlim Orōdēs Persārum rēx per ducem Surēnam Crassum occīderat. Hīc prīmus dē Parthīs iūstissimum triumphum Rōmae ēgit.  
 
 ### Chapter 6 
 
@@ -935,7 +935,7 @@ Eō tempore M. Agrippa in Aquītāniā rem prōsperē gessit et L. Ventidius Bas
 
 ### Chapter 7: Civil War between Augustus and Antonius. The Battle of Actium, 31 BCE 
 
-Hīc quoque ingēns bellum cīvīle commōvit cōgente uxōre Cleopatrā rēgīnā Aegyptī, dum cupiditāte muliebrī optat etiam in urbe rēgnāre. Victus est ab Augustō nāvālī pūgnā clārā et inlūstrī apud Actium, quī locus in Ēpīrō est; ex quā fūgit in Aegyptum et dēspērātīs rēbus, cum omnēs ad Augustum trānsīrent, ipse sē interēmit. Cleopatra sibi aspidem admīsit et venēnō ēius extīncta est. Aegyptus per Octāviānum Augustum imperiō Rōmānō adiecta est praepositusque eī C. Cornēlius Gallus; hunc prīmum Aegyptus Rōmānum iūdicem habuit.  
+(1) Hīc quoque ingēns bellum cīvīle commōvit cōgente uxōre Cleopatrā rēgīnā Aegyptī, dum cupiditāte muliebrī optat etiam in urbe rēgnāre. Victus est ab Augustō nāvālī pūgnā clārā et inlūstrī apud Actium, quī locus in Ēpīrō est; ex quā fūgit in Aegyptum et dēspērātīs rēbus, cum omnēs ad Augustum trānsīrent, ipse sē interēmit. Cleopatra sibi aspidem admīsit et venēnō ēius extīncta est. Aegyptus per Octāviānum Augustum imperiō Rōmānō adiecta est praepositusque eī C. Cornēlius Gallus; hunc prīmum Aegyptus Rōmānum iūdicem habuit.  
 
 ### Chapter 8: Imperial Government Established, 31 BCE 
 
@@ -949,7 +949,7 @@ Hīc quoque ingēns bellum cīvīle commōvit cōgente uxōre Cleopatrā rēgīn
 
 ### Chapter 9: Extension of the Empire 
 
-Nūllō tempore ante eum magis rēs Rōmāna flōruit; nam exceptīs cīvīlibus bellīs, in quibus invictus fuit, Rōmānō adiēcit imperiō Aegyptum, Cantabriam, Dalmatiam saepe ante victam, sed penitus tunc subāctam, Pannoniam, Aquītāniam, Īllyricum, Raetiam, Vindelicōs et Salassōs in Alpibus, omnēs Pontī maritimās cīvitātēs, in hīs nōbilissimās Bosphorum et Panticapaeum. Vīcit autem proeliīs Dācōs. Germānōrum ingentēs cōpiās cecīdit, ipsōs quoque trāns Albim fluvium summōvit, quī in Barbaricō longē ultra Rhēnum est. Hōc tamen bellum per Drūsum, prīvīgnum suum administrāvit (sīcut per Tiberium, prīvīgnum alterum, Pannonicum); quō bellō XL captīvōrum mīlia ex Germāniā trānstulit et suprā rīpam Rhēnī in Galliā collocāvit. Armeniam ā Parthīs recēpit. Obsidēs, quod nūllī anteā, Persae eī dedērunt. Reddidērunt etiam sīgna Rōmāna, quae Crassō victō adēmerant. 
+(1) Nūllō tempore ante eum magis rēs Rōmāna flōruit; nam exceptīs cīvīlibus bellīs, in quibus invictus fuit, Rōmānō adiēcit imperiō Aegyptum, Cantabriam, Dalmatiam saepe ante victam, sed penitus tunc subāctam, Pannoniam, Aquītāniam, Īllyricum, Raetiam, Vindelicōs et Salassōs in Alpibus, omnēs Pontī maritimās cīvitātēs, in hīs nōbilissimās Bosphorum et Panticapaeum. Vīcit autem proeliīs Dācōs. Germānōrum ingentēs cōpiās cecīdit, ipsōs quoque trāns Albim fluvium summōvit, quī in Barbaricō longē ultra Rhēnum est. Hōc tamen bellum per Drūsum, prīvīgnum suum administrāvit (sīcut per Tiberium, prīvīgnum alterum, Pannonicum); quō bellō XL captīvōrum mīlia ex Germāniā trānstulit et suprā rīpam Rhēnī in Galliā collocāvit. Armeniam ā Parthīs recēpit. Obsidēs, quod nūllī anteā, Persae eī dedērunt. Reddidērunt etiam sīgna Rōmāna, quae Crassō victō adēmerant. 
 
 ### Chapter 10: Death of Augustus, 14 CE 
 
@@ -1109,7 +1109,7 @@ Nūllō tempore ante eum magis rēs Rōmāna flōruit; nam exceptīs cīvīlibus
 
 ### Chapter 4 
 
-Glōriam tamen mīlitārem cīvīlitāte et moderātiōne superāvit Rōmae et per prōvinciās aequālem sē omnibus exhibēns, amīcōs salūtandī causā frequentāns vel aegrōtantēs vel cum fēstōs diēs habuissent, convīvia cum īsdem indiscrēta vicissim habēns, saepe in vehiculīs eōrum sedēns, nūllum senātōrum laedēns, nihil iniūstum ad augendum fiscum agēns, līberālis in cūnctōs, publicē prīvātimque dītāns omnēs et honōribus augēns, quōs vel mediōcrī familiāritāte cognōvisset, <per> orbem terrārum aedificāns multa, immūnitātēs cīvitātibus tribuēns, nihil nōn tranquillum et placidum agēns, adeō ut omnī ēius aetāte ūnus senātor damnātus sit atque is tamen per senātum ignōrante Trāiānō. Ob haec per orbem terrārum  deō proximus nihil nōn venerātiōnis meruit et vīvus et mortuus.  
+(1) Glōriam tamen mīlitārem cīvīlitāte et moderātiōne superāvit Rōmae et per prōvinciās aequālem sē omnibus exhibēns, amīcōs salūtandī causā frequentāns vel aegrōtantēs vel cum fēstōs diēs habuissent, convīvia cum īsdem indiscrēta vicissim habēns, saepe in vehiculīs eōrum sedēns, nūllum senātōrum laedēns, nihil iniūstum ad augendum fiscum agēns, līberālis in cūnctōs, publicē prīvātimque dītāns omnēs et honōribus augēns, quōs vel mediōcrī familiāritāte cognōvisset, <per> orbem terrārum aedificāns multa, immūnitātēs cīvitātibus tribuēns, nihil nōn tranquillum et placidum agēns, adeō ut omnī ēius aetāte ūnus senātor damnātus sit atque is tamen per senātum ignōrante Trāiānō. Ob haec per orbem terrārum  deō proximus nihil nōn venerātiōnis meruit et vīvus et mortuus.  
 
 ### Chapter 5 
 
@@ -1185,15 +1185,15 @@ Glōriam tamen mīlitārem cīvīlitāte et moderātiōne superāvit Rōmae et p
 
 ### Chapter 15: Commodus Emperor, 180 – 193 CE 
 
-Huius successor L. Antōnīnus Commodus nihil paternum habuit, nisi quod contrā Germānōs fēlīciter et ipse pūgnāvit. Septembrem mēnsem ad nōmen suum trānsferre cōnātus est, ut Commodus dīcerētur. Sed lūxuriā et obscēnitāte dēprāvātus gladiātōriīs armīs saepissimē in lūdō, deinceps etiam in amphitheātrō cum huiusmodī hominibus dīmicāvit. Obiit morte subitā atque adeō, ut strangulātus vel venēnō interfectus putētur, cum annīs XII post patrem et VIII mēnsibus imperāsset, tantā execrātiōne omnium, ut hostis generis humānī etiam mortuus iūdicārētur. 
+(1) Huius successor L. Antōnīnus Commodus nihil paternum habuit, nisi quod contrā Germānōs fēlīciter et ipse pūgnāvit. Septembrem mēnsem ad nōmen suum trānsferre cōnātus est, ut Commodus dīcerētur. Sed lūxuriā et obscēnitāte dēprāvātus gladiātōriīs armīs saepissimē in lūdō, deinceps etiam in amphitheātrō cum huiusmodī hominibus dīmicāvit. Obiit morte subitā atque adeō, ut strangulātus vel venēnō interfectus putētur, cum annīs XII post patrem et VIII mēnsibus imperāsset, tantā execrātiōne omnium, ut hostis generis humānī etiam mortuus iūdicārētur. 
 
 ### Chapter 16: Pertinax Emperor, 193 CE 
 
-Huic successit Pertināx grandaevus, ut quī septuāgenāriam attigisset aetātem, praefectūram urbī tum agēns, ex senātūs cōnsultō imperāre iussus. Octōgēsimō diē imperiī praetōriānōrum mīlitum sēditiōne et Iūliānī scelere occīsus est. 
+(1) Huic successit Pertināx grandaevus, ut quī septuāgenāriam attigisset aetātem, praefectūram urbī tum agēns, ex senātūs cōnsultō imperāre iussus. Octōgēsimō diē imperiī praetōriānōrum mīlitum sēditiōne et Iūliānī scelere occīsus est. 
 
 ### Chapter 17 
 
-Post eum Salvius Iūliānus rem pūblicam invāsit, vir nōbilis et iūre perītissimus, nepōs Salvī Iūliāni quī sub dīvō Hadriānō perpetuum conposuit ēdictum. Victus est ā Sevērō apud Mulvium pontem, interfectus in Palātiō. Vīxit mēnsibus septem, postquam coeperat imperāre. 
+(1) Post eum Salvius Iūliānus rem pūblicam invāsit, vir nōbilis et iūre perītissimus, nepōs Salvī Iūliāni quī sub dīvō Hadriānō perpetuum conposuit ēdictum. Victus est ā Sevērō apud Mulvium pontem, interfectus in Palātiō. Vīxit mēnsibus septem, postquam coeperat imperāre. 
 
 ### Chapter 18: Septimius Severus Emperor, 193 – 211 CE 
 
@@ -1221,15 +1221,15 @@ Post eum Salvius Iūliānus rem pūblicam invāsit, vir nōbilis et iūre perīt
 
 ### Chapter 21: Macrinus Emperor, 218 CE 
 
-Deinde Opilius Macrīnus, quī praefectus praetōriō erat, cum fīliō Diadūmenō factī imperātōrēs nihil memorābile ex temporis brevitāte gessērunt. Nam imperium eōrum duum mēnsium et ūnīus annī fuit. Sēditiōne mīlitārī ambō pariter occīsī sunt. 
+(1) Deinde Opilius Macrīnus, quī praefectus praetōriō erat, cum fīliō Diadūmenō factī imperātōrēs nihil memorābile ex temporis brevitāte gessērunt. Nam imperium eōrum duum mēnsium et ūnīus annī fuit. Sēditiōne mīlitārī ambō pariter occīsī sunt. 
 
 ### Chapter 22: Heliogabalus Emperor, 218 – 222 CE 
 
-Creātus est post hōs M. Aurēlius Antōnīnus. Hīc Antonīnī Caracallae fīlius putābātur, sacerdōs autem Heliogabalī templī erat. Is cum Rōmam ingentī et mīlitum et senātūs exspectātiōne vēnisset, probrīs sē omnibus contāmināvit. Inpudīcissimē et obscēnissimē vīxit bienniōque post et octō mēnsibus tumultū interfectus est mīlitārī et cum eō māter Symiasera. 
+(1) Creātus est post hōs M. Aurēlius Antōnīnus. Hīc Antonīnī Caracallae fīlius putābātur, sacerdōs autem Heliogabalī templī erat. Is cum Rōmam ingentī et mīlitum et senātūs exspectātiōne vēnisset, probrīs sē omnibus contāmināvit. Inpudīcissimē et obscēnissimē vīxit bienniōque post et octō mēnsibus tumultū interfectus est mīlitārī et cum eō māter Symiasera. 
 
 ### Chapter 23: Alexander Severus Emperor, 222 – 235 CE 
 
-Successit huic Aurēlius Alexander, ab exercitū Caesar, ā senātū Augustus nōminātus, iuvenis admodum; susceptōque adversus Persās bellō Xerxēn eōrum rēgem glōriōsissimē vīcit. Mīlitārem disciplīnam sevērissimē rēxit. Quāsdam tumultuantēs legiōnēs integrās exauctōrāvit. Adsessōrem habuit vel scriniī magistrum Ulpiānum iūris conditōrem. Rōmae quoque favōrābilis fuit. Periit in Galliā mīlitārī tumultū tertiō decimō imperiī annō et diē nōnō. In Mamaeam mātrem suam ūnicē pius. 
+(1) Successit huic Aurēlius Alexander, ab exercitū Caesar, ā senātū Augustus nōminātus, iuvenis admodum; susceptōque adversus Persās bellō Xerxēn eōrum rēgem glōriōsissimē vīcit. Mīlitārem disciplīnam sevērissimē rēxit. Quāsdam tumultuantēs legiōnēs integrās exauctōrāvit. Adsessōrem habuit vel scriniī magistrum Ulpiānum iūris conditōrem. Rōmae quoque favōrābilis fuit. Periit in Galliā mīlitārī tumultū tertiō decimō imperiī annō et diē nōnō. In Mamaeam mātrem suam ūnicē pius. 
 
  ​​
 ​
@@ -1262,7 +1262,7 @@ Successit huic Aurēlius Alexander, ab exercitū Caesar, ā senātū Augustus n�
 
 ### Chapter 6 
 
-Aemiliānus obscūrissimē nātus obscūrius imperāvit ac tertiō mēnse extīnctus est. 
+(1) Aemiliānus obscūrissimē nātus obscūrius imperāvit ac tertiō mēnse extīnctus est. 
 
 ### Chapter 7: Aemilianus Emperor, 253 CE; Valerianus Emperor, 253 – 260 CE 
 
@@ -1358,11 +1358,11 @@ Aemiliānus obscūrissimē nātus obscūrius imperāvit ac tertiō mēnse extīn
 
 ### Chapter 24 
 
-Gālerius Maximiānus prīmum adversus Narseum proelium īnsecundum habuit inter Callinīcum Carrāsque congressus, cum incōnsultē magis quam ignāvē dīmicāsset; admodum enim parvā manū cum cōpiōssimō hoste commīsit. Pulsus igitur et ad Dioclētiānum profectus, cum eī in itinere occurrisset, tantā īnsolentiā ā Dioclētiānō fertur exceptus, ut per aliquot passuum mīlia purpurātus trādātur ad vehiculum cucurrisse. 
+(1) Gālerius Maximiānus prīmum adversus Narseum proelium īnsecundum habuit inter Callinīcum Carrāsque congressus, cum incōnsultē magis quam ignāvē dīmicāsset; admodum enim parvā manū cum cōpiōssimō hoste commīsit. Pulsus igitur et ad Dioclētiānum profectus, cum eī in itinere occurrisset, tantā īnsolentiā ā Dioclētiānō fertur exceptus, ut per aliquot passuum mīlia purpurātus trādātur ad vehiculum cucurrisse. 
 
 ### Chapter 25 
 
-Mox tamen per Īllyricum Moesiamque contrāctīs cōpiīs rūrsus cum Narseō Hormisdae et Sapōris avō in Armeniā Māiōre pūgnāvit successū ingentī nec minōre cōnsiliō, simul fortitūdine, quippe quī etiam speculātōris mūnus cum alterō aut tertiō equite suscēperit. Pulsō Narseō castra ēius dīripuit; uxōrēs, sorōrēs, līberōs cēpit, īnfīnītam extrīnsecus Persārum nōbilitātem, gazam Persicam cōpiōsissimam. Ipsum in ultimās rēgnī sōlitūdinēs ēgit. Quārē ad Dioclētiānum in Mesopotamiā cum praesidiīs tum morante ovāns regressus ingentī honōre susceptus est.  
+(1) Mox tamen per Īllyricum Moesiamque contrāctīs cōpiīs rūrsus cum Narseō Hormisdae et Sapōris avō in Armeniā Māiōre pūgnāvit successū ingentī nec minōre cōnsiliō, simul fortitūdine, quippe quī etiam speculātōris mūnus cum alterō aut tertiō equite suscēperit. Pulsō Narseō castra ēius dīripuit; uxōrēs, sorōrēs, līberōs cēpit, īnfīnītam extrīnsecus Persārum nōbilitātem, gazam Persicam cōpiōsissimam. Ipsum in ultimās rēgnī sōlitūdinēs ēgit. Quārē ad Dioclētiānum in Mesopotamiā cum praesidiīs tum morante ovāns regressus ingentī honōre susceptus est.  
 
 (2) Varia deinceps et simul et virītim bella gessērunt Carpīs et Basternīs subāctīs, Sarmatīs victīs, quārum nātiōnum ingentēs captīvōrum cōpiās in Rōmānīs fīnibus locāvērunt.  
 
