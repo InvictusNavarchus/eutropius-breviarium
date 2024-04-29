@@ -336,7 +336,7 @@ Regulus Sent to Rome to Solicit Peace, 250 BCE
 
 (1) Ille Rōmam cum vēnisset, inductus in senātum nihil quasi Rōmānus ēgit dīxitque sē ex illā diē, quā in potestātem Āfrōrum vēnisset, Rōmānum esse dēsīsse. 
 
-(2) Itaque et uxōrem ā complexū  remōvit et senātuī suāsit, nē pāx cum Poenīs fieret. Illōs enim frāctōs tot cāsibus spem nūllam habēre; tantī nōn esse, ut tot mīlia captīvōrum propter ūnum sē et senem et paucōs, quī ex Rōmānīs captī fuerant, redderentur. Itaque obtinuit. Nam Āfrōs pācem petentēs nūllus admīsit.  
+(2) Itaque et uxōrem ā complexū remōvit et senātuī suāsit, nē pāx cum Poenīs fieret. Illōs enim frāctōs tot cāsibus spem nūllam habēre; tantī nōn esse, ut tot mīlia captīvōrum propter ūnum sē et senem et paucōs, quī ex Rōmānīs captī fuerant, redderentur. Itaque obtinuit. Nam Āfrōs pācem petentēs nūllus admīsit.  
 
 (3) Ipse Carthāginem rediit, offerentibusque Rōmānīs ut eum Rōmae tenērent, negāvit sē in eā urbe mānsūrum, in quā, postquam Āfrīs servierat, dīgnitātem honestī cīvis habēre nōn posset. Regressus igitur ad Āfricam omnibus suppliciīs extīnctus est. 
 
