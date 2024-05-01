@@ -454,59 +454,97 @@ Ptolemy, king of Egypt, declines the aid offered him by the Romans against Antio
 
 ### XI
 
-After this battle, several cities of Italy, which had been subject to the Romans, went over to Hannibal. Hannibal made proposals to the Romans concerning the redemption of the prisoners, but the senate replied, that "such citizens as would suffer themselves to be taken with arms in their hands were of no value to them." Hannibal then put them all to death with various tortures, and sent three modii of gold rings to Carthage, which he had taken from the fingers of Roman knights, senators, and soldiers. In the meantime, Hasdrubal, the brother of Hannibal, who had remained in Spain with a numerous army, in order to reduce all that country under the dominion of the Africans, was defeated there by the two Scipios, the Roman generals, and lost thirty-five thousand men in the battle; of these ten thousand were made prisoners, and twenty-five thousand slain. Upon this, twelve thousand foot, four thousand horse, and twenty elephants were sent to him by the Carthaginians to reinforce his army.
+(1) After this battle, several cities of Italy, which had been subject to the Romans, went over to Hannibal. Hannibal made proposals to the Romans concerning the redemption of the prisoners, but the senate replied, that "such citizens as would suffer themselves to be taken with arms in their hands were of no value to them." Hannibal then put them all to death with various tortures, and sent three modii of gold rings to Carthage, which he had taken from the fingers of Roman knights, senators, and soldiers.
+
+(2) In the meantime, Hasdrubal, the brother of Hannibal, who had remained in Spain with a numerous army, in order to reduce all that country under the dominion of the Africans, was defeated there by the two Scipios, the Roman generals, and lost thirty-five thousand men in the battle; of these ten thousand were made prisoners, and twenty-five thousand slain. Upon this, twelve thousand foot, four thousand horse, and twenty elephants were sent to him by the Carthaginians to reinforce his army.
 
 ### XII
 
-In the fourth year after Hannibal's arrival in Italy, Marcus Claudius Marcellus, one of the consuls, engaged him with success at Nola, a city of Campania. But Hannibal possessed himself of several of the Roman cities in Apulia, Calabria, and the country of the Bruttii. About this time also Philip, king of Macedonia, sent ambassadors to him, offering him assistance against the Romans, on condition that, when he had subdued them, he, in turn, should receive assistance from Hannibal against the Greeks. But Philip's ambassadors being taken, and the affair thus discovered, the Romans ordered Marcus Valerius Laevinus to proceed to Macedonia, and Titus Manlius, as proconsul, into Sardinia; for that island also, at the solicitation of Hannibal, had revolted from the Romans.
+(1) In the fourth year after Hannibal's arrival in Italy, Marcus Claudius Marcellus, one of the consuls, engaged him with success at Nola, a city of Campania. But Hannibal possessed himself of several of the Roman cities in Apulia, Calabria, and the country of the Bruttii.
+
+(2) About this time also Philip, king of Macedonia, sent ambassadors to him, offering him assistance against the Romans, on condition that, when he had subdued them, he, in turn, should receive assistance from Hannibal against the Greeks.
+
+(3) But Philip's ambassadors being taken, and the affair thus discovered, the Romans ordered Marcus Valerius Laevinus to proceed to Macedonia, and Titus Manlius, as proconsul, into Sardinia; for that island also, at the solicitation of Hannibal, had revolted from the Romans.
 
 ### XIII
 
-Thus war was carried on at the same time in four different places; in Italy, against Hannibal; in Spain, against Hasdrubal his brother; in Macedonia, against Philip; in Sardinia, against the Sardinians and another Hasdrubal, also a Carthaginian. Hasdrubal was taken alive by Titus Manlius the proconsul, who had been sent into Sardinia; twelve thousand of his men were slain, fifteen hundred made prisoners, and Sardinia brought under subjection to the Romans. Manlius, being thus successful, brought Hasdrubal and his other prisoners to Rome. In the meantime, Philip also was defeated by Laevinus in Macedonia, and Hasdrubal and Mago, a third brother of Hannibal, by the Scipios in Spain.
+(1) Thus war was carried on at the same time in four different places; in Italy, against Hannibal; in Spain, against Hasdrubal his brother; in Macedonia, against Philip; in Sardinia, against the Sardinians and another Hasdrubal, also a Carthaginian.
+
+(2) Hasdrubal was taken alive by Titus Manlius the proconsul, who had been sent into Sardinia; twelve thousand of his men were slain, fifteen hundred made prisoners, and Sardinia brought under subjection to the Romans. Manlius, being thus successful, brought Hasdrubal and his other prisoners to Rome.
+
+(3) In the meantime, Philip also was defeated by Laevinus in Macedonia, and Hasdrubal and Mago, a third brother of Hannibal, by the Scipios in Spain.
 
 ### XIV
 
-In the tenth year after Hannibal's arrival in Italy, in the consulship of Publius Sulpicius and Cnaeus Fulvius, Hannibal advanced within four miles of Rome, and his cavalry rode up to the very gates; but soon after, through fear of the consuls, who were coming upon him with an army, he withdrew into Campania. In Spain, the two Scipios, who had been victorious for many years, were killed by his brother Hasdrubal; the army however remained in full strength, for the generals had been ensnared rather by accident than the valour of the enemy. About this time, also, a great part of Sicily, which the Africans had begun to appropriate, was recovered by the consul Marcellus, and vast spoil brought to Rome from the celebrated city of Syracuse. In Macedonia, Laevinus made an alliance with Philip, and several of the Grecian states, as well as with Attalus, king of Asia; and. proceeding afterwards to Sicily, took Hanno, a general of the Carthaginians, at the city of Agrigentum, together with the town itself, and sent him with other noble prisoners to Rome. Forty cities he obliged to surrender; twenty-six he carried by storm. Thus all Sicily being recovered, and Macedonia humbled, he returned with great glory to Rome. In Italy, Hannibal, attacking Cnaeus Fulvius, one of the consuls, by surprise, cut him off, together with eight thousand of his men.
+(1) In the tenth year after Hannibal's arrival in Italy, in the consulship of Publius Sulpicius and Cnaeus Fulvius, Hannibal advanced within four miles of Rome, and his cavalry rode up to the very gates; but soon after, through fear of the consuls, who were coming upon him with an army, he withdrew into Campania.
+
+(2) In Spain, the two Scipios, who had been victorious for many years, were killed by his brother Hasdrubal; the army however remained in full strength, for the generals had been ensnared rather by accident than the valour of the enemy.
+
+(3) About this time, also, a great part of Sicily, which the Africans had begun to appropriate, was recovered by the consul Marcellus, and vast spoil brought to Rome from the celebrated city of Syracuse.
+
+(4) In Macedonia, Laevinus made an alliance with Philip, and several of the Grecian states, as well as with Attalus, king of Asia; and. proceeding afterwards to Sicily, took Hanno, a general of the Carthaginians, at the city of Agrigentum, together with the town itself, and sent him with other noble prisoners to Rome. Forty cities he obliged to surrender; twenty-six he carried by storm. Thus all Sicily being recovered, and Macedonia humbled, he returned with great glory to Rome. In Italy, Hannibal, attacking Cnaeus Fulvius, one of the consuls, by surprise, cut him off, together with eight thousand of his men.
 
 ### XV
 
-In the meantime, Publius Cornelius Scipio, a man almost the very first of all the Romans, both in his own and succeeding ages, son of that Publius Scipio who had carried on the war there before, was despatched, at the age of twenty-four, into Spain, where, after the death of the two Scipios, no Roman general was now left. He took Carthage, in Spain, in which the Africans kept all their gold, and silver, and warlike stores; he took also a number of hostages, whom the Carthaginians had received from the Spaniards, as well as Mago, the brother of Hannibal, whom he sent with others to Rome. The rejoicing at Rome on this intelligence was very great. Scipio restored the Spanish hostages to their parents; and in consequence almost all the Spaniards unanimously joined him. Soon after, he put to flight Hasdrubal, the brother of Hannibal, and took a great quantity of spoil.
+(1) In the meantime, Publius Cornelius Scipio, a man almost the very first of all the Romans, both in his own and succeeding ages, son of that Publius Scipio who had carried on the war there before, was despatched, at the age of twenty-four, into Spain, where, after the death of the two Scipios, no Roman general was now left.
+
+(2) He took Carthage, in Spain, in which the Africans kept all their gold, and silver, and warlike stores; he took also a number of hostages, whom the Carthaginians had received from the Spaniards,
+
+(3) As well as Mago, the brother of Hannibal, whom he sent with others to Rome. The rejoicing at Rome on this intelligence was very great. Scipio restored the Spanish hostages to their parents; and in consequence almost all the Spaniards unanimously joined him. Soon after, he put to flight Hasdrubal, the brother of Hannibal, and took a great quantity of spoil.
 
 ### XVI
 
-In Italy, meanwhile, Quintus Fabius Maximus, one of the consuls, recovered Tarentum, where a great body of Hannibal's troops were quartered, and cut off there also Carthalo, one of Hannibal's generals; twenty-five thousand of the prisoners he sold for slaves; the spoil he divided among the soldiers; and the money arising from the sale of the prisoners, he paid into the public treasury. At this time, several of the Roman cities, which had gone over to Hannibal, submitted themselves again to Fabius Maximus.
+(1) In Italy, meanwhile, Quintus Fabius Maximus, one of the consuls, recovered Tarentum, where a great body of Hannibal's troops were quartered, and cut off there also Carthalo, one of Hannibal's generals; twenty-five thousand of the prisoners he sold for slaves; the spoil he divided among the soldiers; and the money arising from the sale of the prisoners, he paid into the public treasury. At this time, several of the Roman cities, which had gone over to Hannibal, submitted themselves again to Fabius Maximus.
 
-In the following year Scipio performed extraordinary exploits in Spain, and, by his own exertions and those of his brother Lucius Scipio, recovered seventy cities. In Italy, however, the war went on unsuccessfully, for Claudius Marcellus the consul was cut off by Hannibal.
+(2) In the following year Scipio performed extraordinary exploits in Spain, and, by his own exertions and those of his brother Lucius Scipio, recovered seventy cities. In Italy, however, the war went on unsuccessfully, for Claudius Marcellus the consul was cut off by Hannibal.
 
 ### XVII
 
-In the third year after Scipio's departure for Spain, he again greatly distinguished himself. A king of Spain, whom he had conquered in a great battle, he received into alliance; and was the first that refrained from demanding hostages of a vanquished enemy.
+(1) In the third year after Scipio's departure for Spain, he again greatly distinguished himself. A king of Spain, whom he had conquered in a great battle, he received into alliance; and was the first that refrained from demanding hostages of a vanquished enemy.
 
 ### XVIII
 
-Hannibal, having no hope that Spain could be held longer against Scipio, summoned from it Hasdrubal his brother, with all his troops, to join him in Italy. Hasdrubal, pursuing the same route by which Hannibal had gone, fell into an ambush laid for him by the consuls Appius Claudius Nero and Marcus Livius Salinator, near Sena, a city of Picenum, but fell fighting valiantly; his numerous forces were either taken or put to the sword; and a great quantity of gold and silver carried off to Rome. Hannibal now began to despair of the issue of the war, and an accession of courage was felt by the Romans. They, therefore, also recalled Publius Cornelius Scipio out of Spain; who arrived at Rome with great glory.
+(1) Hannibal, having no hope that Spain could be held longer against Scipio, summoned from it Hasdrubal his brother, with all his troops, to join him in Italy.
+
+(2) Hasdrubal, pursuing the same route by which Hannibal had gone, fell into an ambush laid for him by the consuls Appius Claudius Nero and Marcus Livius Salinator, near Sena, a city of Picenum, but fell fighting valiantly; his numerous forces were either taken or put to the sword; and a great quantity of gold and silver carried off to Rome.
+
+(3) Hannibal now began to despair of the issue of the war, and an accession of courage was felt by the Romans. They, therefore, also recalled Publius Cornelius Scipio out of Spain; who arrived at Rome with great glory.
 
 ### XIX
 
-In the consulate of Quintus Caecilius and Lucius Valerius, all the cities in the territory of the Bruttii, which were in the possession of Hannibal, surrendered to the Romans.
+(1) In the consulate of Quintus Caecilius and Lucius Valerius, all the cities in the territory of the Bruttii, which were in the possession of Hannibal, surrendered to the Romans.
 
 ### XX
 
-In the fourteenth year after Hannibal s invasion of Italy, Scipio, who had achieved such successes in Spain, was created consul, and sent into Africa; a man in whom there was thought to be something divine, so that he was even imagined to hold converse with the gods. He encountered Hanno, the general of the Carthaginians in Africa, and destroyed his army. In a second battle he took his camp, with four thousand five hundred of his soldiers, eleven thousand being killed. Syphax, king of Numidia, who had joined the Africans, he took prisoner, and became master of his camp. Syphax himself, with the noblest of the Numidians, and a vast quantity of spoil, was sent by Scipio to Rome; on the news of which event, almost all Italy forsook Hannibal, who was desired by the Carthaginians to return to Africa, which Scipio was now laying waste.
+(1) In the fourteenth year after Hannibal s invasion of Italy, Scipio, who had achieved such successes in Spain, was created consul, and sent into Africa; a man in whom there was thought to be something divine, so that he was even imagined to hold converse with the gods.
+
+(2) He encountered Hanno, the general of the Carthaginians in Africa, and destroyed his army. In a second battle he took his camp, with four thousand five hundred of his soldiers, eleven thousand being killed. Syphax, king of Numidia, who had joined the Africans, he took prisoner, and became master of his camp. Syphax himself, with the noblest of the Numidians, and a vast quantity of spoil, was sent by Scipio to Rome;
+
+(3) On the news of which event, almost all Italy forsook Hannibal, who was desired by the Carthaginians to return to Africa, which Scipio was now laying waste.
 
 ### XXI
 
-Thus, in the seventeenth year after his arrival, Italy was delivered from Hannibal, and he is said to have quitted it with tears. Ambassadors from the Carthaginians applied to Scipio for peace, by whom they were sent to the senate, a truce of forty-five days being allowed for their journey to and from Rome; thirty thousand pounds of silver were accepted from them. The senate directed that a peace should be concluded with the Carthaginians at the discretion of Scipio. Scipio granted it on these conditions: "that they should retain, no more than thirty ships, that they should pay to the Romans five hundred thousand pounds of silver, and restore all the prisoners and deserters."
+(1) Thus, in the seventeenth year after his arrival, Italy was delivered from Hannibal, and he is said to have quitted it with tears. Ambassadors from the Carthaginians applied to Scipio for peace,
+
+(2) By whom they were sent to the senate, a truce of forty-five days being allowed for their journey to and from Rome; thirty thousand pounds of silver were accepted from them. The senate directed that a peace should be concluded with the Carthaginians at the discretion of Scipio.
+
+(3) Scipio granted it on these conditions: "that they should retain, no more than thirty ships, that they should pay to the Romans five hundred thousand pounds of silver, and restore all the prisoners and deserters."
 
 ### XXII
 
-Hannibal in the meantime landing in Africa, the treaty was interrupted. Many hostilities were committed by the Carthaginians; yet when their ambassadors, as they were returning from Rome, were made prisoners by some Roman troops, they were by Scipio's orders set at liberty. Hannibal too, being defeated by Scipio in several battles,[2] expressed also himself a desire for peace. A conference being held, peace was offered on the same terms as before, only a hundred thousand pounds of silver were added to the former five hundred thousand, on account of their late perfidy.[3] The terms were, unsatisfactory to the Carthaginians, and they ordered Hannibal to continue the war.
+(1) Hannibal in the meantime landing in Africa, the treaty was interrupted. Many hostilities were committed by the Carthaginians;
 
-The war was carried by Scipio, and Masinissa, another king of the Numidians, who had made an alliance with Scipio, to the very walls of Carthage. Hannibal sent three spies into Scipio's camp, who were captured, and Scipio ordered them to be led round the camp, the whole army to be shown them, and themselves to be entertained and dismissed, that they might report to Hannibal all that they had seen among the Romans.
+(2) Yet when their ambassadors, as they were returning from Rome, were made prisoners by some Roman troops, they were by Scipio's orders set at liberty. Hannibal too, being defeated by Scipio in several battles,[2] expressed also himself a desire for peace. A conference being held, peace was offered on the same terms as before, only a hundred thousand pounds of silver were added to the former five hundred thousand, on account of their late perfidy.[3] The terms were, unsatisfactory to the Carthaginians, and they ordered Hannibal to continue the war. The war was carried by Scipio, and Masinissa, another king of the Numidians, who had made an alliance with Scipio, to the very walls of Carthage.
+
+(3) Hannibal sent three spies into Scipio's camp, who were captured, and Scipio ordered them to be led round the camp, the whole army to be shown them, and themselves to be entertained and dismissed, that they might report to Hannibal all that they had seen among the Romans.
 
 ### XXIII
 
-In the meantime preparations were made by both generals for a battle, such as scarce ever occurred in any age, since they were the ablest commanders that ever led forces into the field. Scipio came off victorious, having almost captured Hannibal himself, who escaped at first with several horse, then with twenty, and at last with only four. There were found in Hannibal's camp twenty thousand pounds of silver, and eight hundred of gold, with plenty of stores. After this battle, peace was concluded with the Carthaginians. Scipio returned to Rome, and triumphed with the greatest glory, receiving from that period the appellation of Africanus. Thus the second Punic war was brought to an end in the nineteenth year after it began.
+(1) In the meantime preparations were made by both generals for a battle, such as scarce ever occurred in any age, since they were the ablest commanders that ever led forces into the field. Scipio came off victorious, having almost captured Hannibal himself, who escaped at first with several horse, then with twenty, and at last with only four.
+
+(2) There were found in Hannibal's camp twenty thousand pounds of silver, and eight hundred of gold, with plenty of stores. After this battle, peace was concluded with the Carthaginians. Scipio returned to Rome, and triumphed with the greatest glory, receiving from that period the appellation of Africanus.
+
+(3) Thus the second Punic war was brought to an end in the nineteenth year after it began.
 
 ### Notes
 
