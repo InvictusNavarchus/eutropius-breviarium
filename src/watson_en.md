@@ -560,23 +560,33 @@ War with Philip, king of Macedonia, I. II.----War with Antiochus, king of Syria,
 
 ### I
 
-After the Punic was terminated, the Macedonian war, against King Philip, succeeded.
+(1) After the Punic was terminated, the Macedonian war, against King Philip, succeeded.
 
 ### II
 
-In the five hundred and fifty-first year from the building of the city, Titus Quintius Flamininus was sent against King Philip. He was successful in his undertaking; and peace was granted to Philip on these conditions, that "he should not make war on those states of Greece which the Romans had defended against him; that he should restore the prisoners and deserters; that he should retain only fifty vessels, and deliver up the rest to the Romans; that he should pay, for ten years, a tribute of four thousand pounds weight of silver; and give his own son Demetrius as a hostage." Titus Quintius made war also on the Lacedaemonians; defeated their general Nabis, and admitted them into alliance on such terms as he thought proper. He led with great pride before his chariot hostages of most noble rank, Demetrius the son of Philip, and Armenes the son of Nabis.
+(1) In the five hundred and fifty-first year from the building of the city, Titus Quintius Flamininus was sent against King Philip. He was successful in his undertaking; and peace was granted to Philip on these conditions, that "he should not make war on those states of Greece which the Romans had defended against him; that he should restore the prisoners and deserters; that he should retain only fifty vessels, and deliver up the rest to the Romans; that he should pay, for ten years, a tribute of four thousand pounds weight of silver; and give his own son Demetrius as a hostage."
+
+(2) Titus Quintius made war also on the Lacedaemonians; defeated their general Nabis, and admitted them into alliance on such terms as he thought proper. He led with great pride before his chariot hostages of most noble rank, Demetrius the son of Philip, and Armenes the son of Nabis.
 
 ### III
 
-The Macedonian war being thus terminated, the Syrian war, against King Antiochus, succeeded, in the consulship of Publius Cornelius Scipio and Manius Acilius Glabrio, To this Antiochus Hannibal had joined himself, abandoning his native country, Carthage, to escape being delivered up to the Romans. Manius Acilius Glabrio fought successfully in Achaia. The camp of King Antiochus was taken by an attack in the night, and he himself obliged to flee. To Philip his son Demetrius was restored, for having assisted the Romans in their contest with Antiochus.
+(1) The Macedonian war being thus terminated, the Syrian war, against King Antiochus, succeeded, in the consulship of Publius Cornelius Scipio and Manius Acilius Glabrio,
+
+(2) To this Antiochus Hannibal had joined himself, abandoning his native country, Carthage, to escape being delivered up to the Romans. Manius Acilius Glabrio fought successfully in Achaia. The camp of King Antiochus was taken by an attack in the night, and he himself obliged to flee. To Philip his son Demetrius was restored, for having assisted the Romans in their contest with Antiochus.
 
 ### IV
 
-In the consulate of Lucius Cornelius Scipio and Caius Laelius, Scipio Africanus went out as lieutenant to his brother Lucius Cornelius Scipio, the consul, against Antiochus. Hannibal, who was with Antiochus, was defeated in a battle by sea. Antiochus himself was afterwards routed by Cornelius Scipio, the consul, in a great battle at Magnesia, a city of Asia, near mount Sipylus. Eumenes, who founded the city of Eumenia in Phrygia, the brother of king Attalus, assisted the Romans in that engagement. Fifty thousand foot, and three thousand horse were killed in that battle on the side of the king. In consequence, King Antiochus sued for peace, which was granted to him, though vanquished, by the senate, on the same conditions as it had been offered before: "that he should withdraw from Europe and Asia, and confine himself within mount Taurus; that he should pay ten thousand talents, and give twenty hostages, and surrender Hannibal, the author of the war." All the cities of Asia, which Antiochus had lost in this war, were given to Eumenes; many cities also were granted to the Rhodians, who had assisted the Romans against Antiochus. Scipio returned to Rome, and celebrated his triumph with great pomp; and he also, after the example of his brother, received the name of Asiaticus, from his conquest of Asia; as his brother, from the subjugation of Africa, had been surnamed Africanus.
+(1) In the consulate of Lucius Cornelius Scipio and Caius Laelius, Scipio Africanus went out as lieutenant to his brother Lucius Cornelius Scipio, the consul, against Antiochus. Hannibal, who was with Antiochus, was defeated in a battle by sea.
+
+(2) Antiochus himself was afterwards routed by Cornelius Scipio, the consul, in a great battle at Magnesia, a city of Asia, near mount Sipylus. Eumenes, who founded the city of Eumenia in Phrygia, the brother of king Attalus, assisted the Romans in that engagement. Fifty thousand foot, and three thousand horse were killed in that battle on the side of the king.
+
+(3) In consequence, King Antiochus sued for peace, which was granted to him, though vanquished, by the senate, on the same conditions as it had been offered before: "that he should withdraw from Europe and Asia, and confine himself within mount Taurus; that he should pay ten thousand talents, and give twenty hostages, and surrender Hannibal, the author of the war." All the cities of Asia, which Antiochus had lost in this war, were given to Eumenes; many cities also were granted to the Rhodians, who had assisted the Romans against Antiochus. Scipio returned to Rome, and celebrated his triumph with great pomp; and he also, after the example of his brother, received the name of Asiaticus, from his conquest of Asia; as his brother, from the subjugation of Africa, had been surnamed Africanus.
 
 ### V
 
-Under the consuls Spurius Posthumius Albinus and Quintus Marcius Philippus,[1] Marcus Fulvius triumphed for conquering the Aetolians. Hannibal, who, on the defeat of Antiochus, had fled to Prusias, king of Bithynia, that he might not be surrendered to the Romans, was demanded also at his hands by Titus Quintius Flamininus; and, as he seemed likely to be surrendered, he drank poison, and was buried at Libyssa, in the territory of the Nicomedians.
+(1) Under the consuls Spurius Posthumius Albinus and Quintus Marcius Philippus,[1] Marcus Fulvius triumphed for conquering the Aetolians.
+
+(2) Hannibal, who, on the defeat of Antiochus, had fled to Prusias, king of Bithynia, that he might not be surrendered to the Romans, was demanded also at his hands by Titus Quintius Flamininus; and, as he seemed likely to be surrendered, he drank poison, and was buried at Libyssa, in the territory of the Nicomedians.
 
 ### VI
 
