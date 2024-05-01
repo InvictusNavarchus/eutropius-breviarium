@@ -650,53 +650,67 @@ War with Philip, king of Macedonia, I. II.----War with Antiochus, king of Syria,
 
 ### XVI
 
-About the same time Metellus had singular success against the Spaniards in Celtiberia. Quintus Pompeius succeeded him. Not long after Quintus Caepio was also sent to the same war, which a leader named Viriathus was still keeping up against the Romans in Lusitania; through fear of whom Viriathus was killed by his own men. after he had kept Spain in a state of excitement against the Romans for fourteen years. He was at first a shepherd, then captain of a band of robbers, and at last he stirred up so many powerful nations to war, that he was considered as the protector of Spain against the Romans. When his assassins asked a reward of the consul Caepio, they received for answer, that "it was never pleasing to the Romans, that a general should be killed by his own soldiers."
+(1) About the same time Metellus had singular success against the Spaniards in Celtiberia. Quintus Pompeius succeeded him.
+
+(2) Not long after Quintus Caepio was also sent to the same war, which a leader named Viriathus was still keeping up against the Romans in Lusitania; through fear of whom Viriathus was killed by his own men. after he had kept Spain in a state of excitement against the Romans for fourteen years. He was at first a shepherd, then captain of a band of robbers, and at last he stirred up so many powerful nations to war, that he was considered as the protector of Spain against the Romans.
+
+(3) When his assassins asked a reward of the consul Caepio, they received for answer, that "it was never pleasing to the Romans, that a general should be killed by his own soldiers."
 
 ### XVII
 
-The consul Quintus Pompeius being afterwards defeated by the Numantines, the most powerful nation of Spain, made an ignominious peace with them. After him. the consul Caius Hostilius Mancinus again concluded a dishonourable peace with the Numantines, which the people and senate ordered to be annulled, and Mancinus himself to be given up to the enemy, that they might avenge themselves for the dissolution of the treaty on him with whom they had made it.[4] After such signal disgrace, therefore, with which the Roman armies had been twice defeated by the Numantines, Publius Scipio Africanus was made consul a second time, and sent to Numantia. He reformed, in the first place, the dissolute and idle soldiery, rather by inuring them to labour than by punishment, and without any great severity. He then took several cities of Spain, some by force, and allowing others to surrender. At last he reduced Numantia itself by famine, after it had been long besieged, and razed it to the ground, and received the rest of the province into alliance.
+(1) The consul Quintus Pompeius being afterwards defeated by the Numantines, the most powerful nation of Spain, made an ignominious peace with them. After him. the consul Caius Hostilius Mancinus again concluded a dishonourable peace with the Numantines, which the people and senate ordered to be annulled, and Mancinus himself to be given up to the enemy, that they might avenge themselves for the dissolution of the treaty on him with whom they had made it.[4]
+
+(2) After such signal disgrace, therefore, with which the Roman armies had been twice defeated by the Numantines, Publius Scipio Africanus was made consul a second time, and sent to Numantia. He reformed, in the first place, the dissolute and idle soldiery, rather by inuring them to labour than by punishment, and without any great severity. He then took several cities of Spain, some by force, and allowing others to surrender. At last he reduced Numantia itself by famine, after it had been long besieged, and razed it to the ground, and received the rest of the province into alliance.
 
 ### XVIII
 
-About this time Attalus, king of Asia, the brother of Eumenes, died, and left the Roman people his heir. Thus Asia was added to the Roman empire by will.
+(1) About this time Attalus, king of Asia, the brother of Eumenes, died, and left the Roman people his heir. Thus Asia was added to the Roman empire by will.
 
 ### XIX
 
-Shortly after, also, Decimus Junius Brutus triumphed with great glory over the Gallaeciansand Lusitanians; and Publius Scipio Africanus had a second triumph over the Numantines. in the fourteenth year after his first triumph for his exploits in Africa.
+(1) Shortly after, also, Decimus Junius Brutus triumphed with great glory over the Gallaeciansand Lusitanians; and Publius Scipio Africanus had a second triumph over the Numantines. in the fourteenth year after his first triumph for his exploits in Africa.
 
 ### XX
 
-A war in the meantime was kindled in Asia by Aristonicus, the son of Eumenes by a concubine: this Eumenes was the brother of Attalus. Against him was sent out Publius Licinius Crassus, who had ample assistance from several kings, for not only Nicomedes, the king of Bithynia, supported the Romans, but also Mithridates king of Pontus, with whom they had afterwards a very great war, as well as Ariarathes, king of Cappadocia, and Pylaemenes of Paphlagonia. Crassus notwithstanding was defeated, and killed in battle; his head was carried to Aristonicus, and his body buried at Smyrna. Soon after Perperna, the Roman consul, who was appointed successor to Crassus, hearing of the event of the war, hastened to Asia; and defeating Aristonicus in battle, near the city Stratonice to which he had fled, reduced him by famine to surrender. Aristonicus, by command of the senate, was strangled in prison at Rome; for a triumph could not be celebrated on his account, because Perperna had died at Pergamus on his return.
+(1) A war in the meantime was kindled in Asia by Aristonicus, the son of Eumenes by a concubine: this Eumenes was the brother of Attalus. Against him was sent out Publius Licinius Crassus, who had ample assistance from several kings, for not only Nicomedes, the king of Bithynia, supported the Romans, but also Mithridates king of Pontus, with whom they had afterwards a very great war, as well as Ariarathes, king of Cappadocia, and Pylaemenes of Paphlagonia. Crassus notwithstanding was defeated, and killed in battle; his head was carried to Aristonicus, and his body buried at Smyrna.
+
+(2) Soon after Perperna, the Roman consul, who was appointed successor to Crassus, hearing of the event of the war, hastened to Asia; and defeating Aristonicus in battle, near the city Stratonice to which he had fled, reduced him by famine to surrender. Aristonicus, by command of the senate, was strangled in prison at Rome; for a triumph could not be celebrated on his account, because Perperna had died at Pergamus on his return.
 
 ### XXI
 
-In the consulate of Lucius Caecilius Metellus and Titus Quintius Flamininus, Carthage in Africa, which still exists, was rebuilt by order of the senate, two and twenty years after it had been destroyed by Scipio. A colony of Roman citizens was sent out thither.
+(1) In the consulate of Lucius Caecilius Metellus and Titus Quintius Flamininus, Carthage in Africa, which still exists, was rebuilt by order of the senate, two and twenty years after it had been destroyed by Scipio. A colony of Roman citizens was sent out thither.
 
 ### XXII
 
-In the six hundred and twenty-seventh year from the founding of the city, Caius Cassius Longinus and Sextus Domitius Calvinus, the consuls, made war upon the Trans alpine Gauls, and the city of the Arverni, at that time very distinguished, and their king, Bituitus; and slew a vast number of men near the river Rhone. A great booty, consisting of the golden collars of the Gauls, was brought to Rome. Bituitus surrendered himself to Domitius, and was conveyed by him to Rome; and both consuls triumphed with great glory.
+(1) In the six hundred and twenty-seventh year from the founding of the city, Caius Cassius Longinus and Sextus Domitius Calvinus, the consuls, made war upon the Trans alpine Gauls, and the city of the Arverni, at that time very distinguished, and their king, Bituitus; and slew a vast number of men near the river Rhone. A great booty, consisting of the golden collars of the Gauls, was brought to Rome. Bituitus surrendered himself to Domitius, and was conveyed by him to Rome; and both consuls triumphed with great glory.
 
 ### XXIII
 
-In the consulship of Marcus Porcius Cato and Quintus Marcius Rex, in the six hundred and thirty-third year from the building of the city, a colony was led out to Narbonne in Gaul. Afterwards a triumph was obtained over Dalmatia by the consuls Lucius Metellus and Quintus Mucius Scaevola.
+(1) In the consulship of Marcus Porcius Cato and Quintus Marcius Rex, in the six hundred and thirty-third year from the building of the city, a colony was led out to Narbonne in Gaul. Afterwards a triumph was obtained over Dalmatia by the consuls Lucius Metellus and Quintus Mucius Scaevola.
 
 ### XXIV
 
-In the six hundred and thirty-fifth year from the building of the city, the consul Caius Cato made war upon the Scordisci, and fought with them to his dishonour.
+(1) In the six hundred and thirty-fifth year from the building of the city, the consul Caius Cato made war upon the Scordisci, and fought with them to his dishonour.
 
 ### XXV
 
-When Caius Caecilius Metellus and Cnaeus Carbo were consuls, the Metelli, two brothers, had triumphs on the same day, one for Sardinia, the other for Thrace; and news was brought to Rome, that the Cimbri had crossed from Gaul into Italy.
+(1) When Caius Caecilius Metellus and Cnaeus Carbo were consuls, the Metelli, two brothers, had triumphs on the same day, one for Sardinia, the other for Thrace; and news was brought to Rome, that the Cimbri had crossed from Gaul into Italy.
 
 ### XXVI
 
-In the consulship of Publius Scipio Nasica and Lucius Calpurnius Bestia, war was made upon Jugurtha, king of Numidia, because he had murdered Adherbal and Hiempsal, the sons of Micipsa, his cousins, princes, and allies of the Roman people. The consul Calpumius Bestia being sent against him, was corrupted by the king's money, and concluded a most ignominious treaty of peace with him, which was afterwards repudiated by the senate. Spurius Albinus Postumius proceeded against him in the following year: he also, through the agency of his brother, fought against the Numidians to his disgrace.
+(1) In the consulship of Publius Scipio Nasica and Lucius Calpurnius Bestia, war was made upon Jugurtha, king of Numidia, because he had murdered Adherbal and Hiempsal, the sons of Micipsa, his cousins, princes, and allies of the Roman people. The consul Calpumius Bestia being sent against him, was corrupted by the king's money, and concluded a most ignominious treaty of peace with him, which was afterwards repudiated by the senate.
+
+(2) Spurius Albinus Postumius proceeded against him in the following year: he also, through the agency of his brother, fought against the Numidians to his disgrace.
 
 ### XXVII
 
-In the third place, the consul Quintus Caecilius Metellus being sent out against him, brought back the army, which he reformed with great severity and judgment, without exercising cruelty on any one, to the ancient Roman discipline. He defeated Jugurtha in various battles, killed or captured his elephants, and obliged many of his towns to surrender; and, when on the point of putting an end to the war, was succeeded by Caius Marius. Marius overthrew both Jugurtha and Bocchus, the king of Mauritania, who had undertaken to afford assistance to Jugurtha; he also took several towns in Numidia, and put an end to the war, having, through the instrumentality of his quaestor Cornelius Sulla, a distinguished man, taken Jugurtha prisoner, whom Bocchus, who had before fought for him, betrayed.
+(1) In the third place, the consul Quintus Caecilius Metellus being sent out against him, brought back the army, which he reformed with great severity and judgment, without exercising cruelty on any one, to the ancient Roman discipline. He defeated Jugurtha in various battles, killed or captured his elephants, and obliged many of his towns to surrender; and, when on the point of putting an end to the war, was succeeded by Caius Marius.
 
-In Gaul, the Cimbri were defeated by Marcus Junius Silanus, the colleague of Quintus Metellus, the Scordisci and Triballi in Macedonia by Minutius Rufus, and the Lusitani in Spain by Servilius Caepio; and two triumphs were celebrated on account of Jugurtha; the first by Metellus, the second by Marius. It was before the chariot of Marius, however, that Jugurtha, with his two sons, was led in chains; and he was soon after, by order of the consul, strangled in prison.
+(2) Marius overthrew both Jugurtha and Bocchus, the king of Mauritania, who had undertaken to afford assistance to Jugurtha; he also took several towns in Numidia, and put an end to the war, having, through the instrumentality of his quaestor Cornelius Sulla, a distinguished man, taken Jugurtha prisoner, whom Bocchus, who had before fought for him, betrayed.
+
+(3) In Gaul, the Cimbri were defeated by Marcus Junius Silanus, the colleague of Quintus Metellus, the Scordisci and Triballi in Macedonia by Minutius Rufus, and the Lusitani in Spain by Servilius Caepio;
+
+(4) And two triumphs were celebrated on account of Jugurtha; the first by Metellus, the second by Marius. It was before the chariot of Marius, however, that Jugurtha, with his two sons, was led in chains; and he was soon after, by order of the consul, strangled in prison.
 
 ### Notes
 
