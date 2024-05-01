@@ -590,43 +590,63 @@ War with Philip, king of Macedonia, I. II.----War with Antiochus, king of Syria,
 
 ### VI
 
-On the death of Philip, king of Macedonia, who had both waged war with the Romans, and afterwards given aid to the Romans against Antiochus, his son Perseus took up arms again in Macedonia, having levied great forces for the war, and having as allies Cotys, king of Thrace, and the king of Illyricum, whose name was Gentius. On the side of the Romans were Eumenes, king of Asia, Ariarathes of Cappadocia, Antiochus of Syria, Ptolemy of Egypt, Masinissa of Numidia. Prusias, the king of Bithynia, although he had married the sister of Perseus, remained neutral. The general of the Romans, the consul Publius Licinius, was defeated by Perseus in a severe engagement; yet the Romans, although vanquished, refused peace to the king when he solicited it, except on condition that he should surrender himself and his people to the senate and the people of Rome. The consul Lucius Aemilius Paulus was afterwards sent against him, and the praetor Caius Anicius into Illyricum against Gentius: but Gentius, being defeated with ease in a single battle, soon surrendered; and his mother, his wife, his two sons, and his brother, fell at the same time into the power of the Romans. Thus the war was terminated within thirty days, and the news of Gentius's defeat arrived before it was announced that the war had been begun.
+(1) On the death of Philip, king of Macedonia, who had both waged war with the Romans, and afterwards given aid to the Romans against Antiochus, his son Perseus took up arms again in Macedonia, having levied great forces for the war,
+
+(2) And having as allies Cotys, king of Thrace, and the king of Illyricum, whose name was Gentius. On the side of the Romans were Eumenes, king of Asia, Ariarathes of Cappadocia, Antiochus of Syria, Ptolemy of Egypt, Masinissa of Numidia. Prusias, the king of Bithynia, although he had married the sister of Perseus, remained neutral.
+
+(3) The general of the Romans, the consul Publius Licinius, was defeated by Perseus in a severe engagement; yet the Romans, although vanquished, refused peace to the king when he solicited it, except on condition that he should surrender himself and his people to the senate and the people of Rome.
+
+(4) The consul Lucius Aemilius Paulus was afterwards sent against him, and the praetor Caius Anicius into Illyricum against Gentius: but Gentius, being defeated with ease in a single battle, soon surrendered; and his mother, his wife, his two sons, and his brother, fell at the same time into the power of the Romans. Thus the war was terminated within thirty days, and the news of Gentius's defeat arrived before it was announced that the war had been begun.
 
 ### VII
 
-The consul Aemilius Paulus came to a battle with Perseus on the 3rd of September, and defeated him, killing twenty thousand of his infantry; the cavalry which remained with the king was unbroken; on the side of the Romans only a hundred men were missing. All the cities of Macedonia, that Perseus had under his sway, submitted to the Romans. The king himself, deserted by his friends, fell into the hands of Paulus; but Paulus treated him with respect, and not as a vanquished enemy, for, when he desired to prostrate himself at his feet, he would not permit him, but placed him in a seat by his side. The terms granted to the Macedonians and Illyrians were these, "that they might remain free, on paying half the tribute which they had been accustomed to pay to their kings;" that it might be seen that the Roman people contended with a view to equity and not to covetousness: and these terms Paulus proclaimed in an assembly of a vast concourse of people, entertaining the ambassadors of several states, who had come to pay their respects to him, with a most sumptuous feast; saying that "it ought to be possible for the same individual to be victorious in war and elegant in his entertainments."
+(1) The consul Aemilius Paulus came to a battle with Perseus on the 3rd of September, and defeated him, killing twenty thousand of his infantry; the cavalry which remained with the king was unbroken; on the side of the Romans only a hundred men were missing. All the cities of Macedonia, that Perseus had under his sway, submitted to the Romans. The king himself, deserted by his friends, fell into the hands of Paulus;
+
+(2) But Paulus treated him with respect, and not as a vanquished enemy, for, when he desired to prostrate himself at his feet, he would not permit him, but placed him in a seat by his side. The terms granted to the Macedonians and Illyrians were these,
+
+(3) "that they might remain free, on paying half the tribute which they had been accustomed to pay to their kings;" that it might be seen that the Roman people contended with a view to equity and not to covetousness: and these terms Paulus proclaimed in an assembly of a vast concourse of people, entertaining the ambassadors of several states, who had come to pay their respects to him, with a most sumptuous feast; saying that "it ought to be possible for the same individual to be victorious in war and elegant in his entertainments."
 
 ### VIII
 
-Shortly after he took seventy cities of Epirus, which had resumed hostilities; the booty he distributed among his soldiers. He then returned to Rome with great display, in a vessel belonging to Perseus, which is recorded to have been of such extraordinary magnitude, that it contained sixteen banks of oars. He celebrated his triumph most magnificently in a golden car, with his two sons standing on each side of him; the two sons of Perseus, and Perseus himself, then forty-five years of age, were led in procession before the car. After Aemilius, Caius Anicius also celebrated a triumph on account of the Illyrians; in which Gentius, with his brother and sons, were led before his car. To witness this spectacle the kings of several nations came to Rome; among others, even Attains and Eumenes, kings of Asia, and Prusias, king of Bithynia; who were entertained with great consideration, and, by permission of the senate, deposited the presents which they had brought in the Capitol. Prusias also entrusted his son Nicomedes to the senate.
+(1) Shortly after he took seventy cities of Epirus, which had resumed hostilities; the booty he distributed among his soldiers. He then returned to Rome with great display, in a vessel belonging to Perseus, which is recorded to have been of such extraordinary magnitude, that it contained sixteen banks of oars. He celebrated his triumph most magnificently in a golden car, with his two sons standing on each side of him; the two sons of Perseus, and Perseus himself, then forty-five years of age, were led in procession before the car.
+
+(2) After Aemilius, Caius Anicius also celebrated a triumph on account of the Illyrians; in which Gentius, with his brother and sons, were led before his car. To witness this spectacle the kings of several nations came to Rome; among others, even Attains and Eumenes, kings of Asia, and Prusias, king of Bithynia; who were entertained with great consideration, and, by permission of the senate, deposited the presents which they had brought in the Capitol. Prusias also entrusted his son Nicomedes to the senate.
 
 ### IX
 
-In the year following Lucius Memmius was successful in the war in Spain. Marcellus the consul afterwards met with success in the same country.
+(1) In the year following Lucius Memmius was successful in the war in Spain. Marcellus the consul afterwards met with success in the same country.
 
 ### X
 
-A third war was then undertaken against Carthage, in the six hundred and second[2] 17 year from the building of the city, in the consulship of Lucius Manlius Censorinus and Marcus Manilius, and in the fifty-first year after the termination of the second Punic war. The consuls in consequence proceeded to attack Carthage. Hasdrubal, the Carthaginian general, engaged them; Phamea, another general, had the command of the Carthaginian cavalry. At that time, Scipio, the grandson of Scipio Africanus, served in the army in the capacity of tribune, for whom great fear and respect was felt by all; for he was regarded as eminently brave and skilful in the field. Many enterprises were accordingly conducted with success by his agency; nor did Hasdrubal or Phamea shrink from anything more than engaging with that part of the army in which Scipio commanded.
+(1) A third war was then undertaken against Carthage, in the six hundred and second[2] 17 year from the building of the city, in the consulship of Lucius Manlius Censorinus and Marcus Manilius, and in the fifty-first year after the termination of the second Punic war.
+
+(2) The consuls in consequence proceeded to attack Carthage. Hasdrubal, the Carthaginian general, engaged them; Phamea, another general, had the command of the Carthaginian cavalry.
+
+(3) At that time, Scipio, the grandson of Scipio Africanus, served in the army in the capacity of tribune, for whom great fear and respect was felt by all; for he was regarded as eminently brave and skilful in the field. Many enterprises were accordingly conducted with success by his agency; nor did Hasdrubal or Phamea shrink from anything more than engaging with that part of the army in which Scipio commanded.
 
 ### XI
 
-About the same time, Masinissa, king of Numidia, who had been an ally of the Roman people for nearly sixty years, died in the ninety-seventh year of his age, leaving behind him forty-four sons. He appointed Scipio to divide his kingdom amongst his sons
+(1) About the same time, Masinissa, king of Numidia, who had been an ally of the Roman people for nearly sixty years, died in the ninety-seventh year of his age, leaving behind him forty-four sons. He appointed Scipio to divide his kingdom amongst his sons
 
 ### XII
 
-As the name of Scipio had already become famous, he was created consul, although but a young man, and sent against Carthage. He took it and demolished it: the spoils found there, which had been amassed by Carthage from the ruins of various cities, and the ornaments of towns, he restored to such cities of Sicily, Italy, and Africa, as recognized their own. Thus Carthage, in the seven hundredth year after its foundation, was destroyed. Scipio earned the same title which his grandfather had gained, being, on account of his valour, called Africanus Junior.
+(1) As the name of Scipio had already become famous, he was created consul, although but a young man, and sent against Carthage. He took it and demolished it: the spoils found there, which had been amassed by Carthage from the ruins of various cities, and the ornaments of towns, he restored to such cities of Sicily, Italy, and Africa, as recognized their own. Thus Carthage, in the seven hundredth year after its foundation, was destroyed.
+
+(2) Scipio earned the same title which his grandfather had gained, being, on account of his valour, called Africanus Junior.
 
 ### XIII
 
-In the meantime a certain Pseudo-Philip took up arms in Macedonia, and defeated Publius Juvencius, a Roman praetor, who had been sent out against him, with a terrible slaughter. After him Quintus Caecilius Metellus was sent by the Romans as general against this pretended Philip, and, having slain twenty-five thousand of his soldiers, recovered Macedonia, and took the impostor himself prisoner,
+(1) In the meantime a certain Pseudo-Philip took up arms in Macedonia, and defeated Publius Juvencius, a Roman praetor, who had been sent out against him, with a terrible slaughter. After him Quintus Caecilius Metellus was sent by the Romans as general against this pretended Philip, and, having slain twenty-five thousand of his soldiers, recovered Macedonia, and took the impostor himself prisoner,
 
 ### XIV
 
-War was also declared against Corinth, the noblest city of Greece, on account of an affront offered to a Roman embassy. That city Mummius the consul took and demolished. Three most remarkable triumphs therefore were celebrated at Rome at the same time, that of Scipio for Africa, before whose chariot Hasdrubal was led; that of Metellus for Macedonia, before whose chariot walked Andriscus, also called Pseudo-Philip; and that of Mummius for Corinth, before whom brazen statues, pictures, and other ornaments of that celebrated city, were carried.
+(1) War was also declared against Corinth, the noblest city of Greece, on account of an affront offered to a Roman embassy. That city Mummius the consul took and demolished.
+
+(2) Three most remarkable triumphs therefore were celebrated at Rome at the same time, that of Scipio for Africa, before whose chariot Hasdrubal was led; that of Metellus for Macedonia, before whose chariot walked Andriscus, also called Pseudo-Philip; and that of Mummius for Corinth, before whom brazen statues, pictures, and other ornaments of that celebrated city, were carried.
 
 ### XV
 
-In Macedonia, meanwhile, a Pseudo-Perseus, who called himself the son of Perseus, collecting the slaves, took up arms, and, when he was at the head of a force of seventeen thousand fighting men, was defeated by Tremellius the quaestor. [At this time a hermaphrodite was discovered at Rome, and drowned in the sea by order of the soothsayers.][3]
+(1) In Macedonia, meanwhile, a Pseudo-Perseus, who called himself the son of Perseus, collecting the slaves, took up arms, and, when he was at the head of a force of seventeen thousand fighting men, was defeated by Tremellius the quaestor. [At this time a hermaphrodite was discovered at Rome, and drowned in the sea by order of the soothsayers.][3]
 
 ### XVI
 
