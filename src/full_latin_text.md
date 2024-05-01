@@ -212,7 +212,7 @@ Rome Captured by the Gauls, 390 BCE
 
 ### Chapter 9: Romans Defeated at Caudine Forks, 321 BCE 
 
- (1) Posteā Samnītēs Rōmānōs T. Veturiō et Sp. Postumiō cōnsulibus ingentī dēdecōre vīcērunt et sub iugum mīsērunt. Pāx tamen ā senātū et populō solūta est, quae cum ipsīs propter necessitātem facta fuerat. Posteā Samnītēs victī sunt ā L. Papīriō cōnsule, septem mīlia eōrum sub iugum missa. Papīrius prīmus dē Samnītibus triumphāvit.  
+(1) Posteā Samnītēs Rōmānōs T. Veturiō et Sp. Postumiō cōnsulibus ingentī dēdecōre vīcērunt et sub iugum mīsērunt. Pāx tamen ā senātū et populō solūta est, quae cum ipsīs propter necessitātem facta fuerat. Posteā Samnītēs victī sunt ā L. Papīriō cōnsule, septem mīlia eōrum sub iugum missa. Papīrius prīmus dē Samnītibus triumphāvit.  
 
 (2) Eō tempore Ap. Claudius cēnsor aquam Claudiam indūxit et viam Appiam strāvit. Samnītēs reparātō bellō Q. Fabium Māximum vīcērunt tribus mīlibus hominum occīsīs. Posteā, cum pater eī Fabius Māximus lēgātus fuisset, et Samnītas vīcit et plūrima ipsōrum oppida cēpit. 
 
@@ -452,7 +452,7 @@ Regulus Sent to Rome to Solicit Peace, 250 BCE
 
 ### Chapter 15: War in Spain, 210 – 206 CBE  
 
- (1) Intereā ad Hispāniās, ubi occīsīs duōbus Scīpiōnibus nūllus Rōmānus dux erat, P. Cornēlius Scīpiō mittitur fīlius P. Scīpiōnis, quī ibīdem bellum gesserat, annōs nātus quattuor et vīgintī, vir Rōmānōrum omnium et suā aetāte et posteriōre tempore ferē prīmus. 
+(1) Intereā ad Hispāniās, ubi occīsīs duōbus Scīpiōnibus nūllus Rōmānus dux erat, P. Cornēlius Scīpiō mittitur fīlius P. Scīpiōnis, quī ibīdem bellum gesserat, annōs nātus quattuor et vīgintī, vir Rōmānōrum omnium et suā aetāte et posteriōre tempore ferē prīmus. 
 
 (2) Is Carthāginem Hispāniae capit, in quā omne aurum, argentum et bellī apparātum Āfrī habēbant, nōbilissimōs quoque obsidēs, quōs ab Hispānīs accēperant. 
 
@@ -667,7 +667,6 @@ Regulus Sent to Rome to Solicit Peace, 250 BCE
 (3) Ā M. Iūniō Sīlānō, collēgā Q. Metellī, Cimbrī in Galliā victī sunt et ā Minuciō Rūfō in Macedoniā Scordiscī et Triballī et ā Serviliō Caepiōne in Hispāniā Lūsitānī. 
 
 (4) Āctī sunt et duo triumphī dē Iugurthā, prīmus per Metellum, secundus per Marium. Ante currum tamen Marīī Iugurtha cum duōbus fīliīs ductus est catēnātus et mox iussū cōnsulis in carcere strangulatus est. 
-
  
 ## Book 5: From the End of the War with Jugurtha to the End of the First Civil War, 106 – 81 BCE 
 
@@ -827,7 +826,7 @@ Regulus Sent to Rome to Solicit Peace, 250 BCE
 
 (2) Et cum vēnisset in Syriam, Seleucīam vīcīnam Antiochīae cīvitātem lībertāte dōnāvit, quod rēgem Tigrānēn nōn recēpisset. Antiochēnsibus obsidēs reddidit. Aliquantum agrōrum Daphnēnsibus dedit, quō lūcus ibi spatiōsior fieret, dēlectātus locī amoenitāte et aquārum abundantiā. Īnde ad Iūdaeam trānsgressus est, Hierosolyma, caput gentis tertiō mēnse cēpit XII mīlibus Iūdaeōrum occīsīs, cēterīs in fidem acceptīs. Hīs gestīs in Asiam sē recēpit et fīnem antīquissimō bellō dedit.  
 
- Chapter 15: Cicero Consul. Conspiracy of Catiline, 63 BCE 
+Chapter 15: Cicero Consul. Conspiracy of Catiline, 63 BCE 
 
 (1) M. Tulliō Cicerōne ōrātōre et C. Antōniō cōnsulibus, annō ab urbe conditā sexcentēsimō octōgēsimō nōnō, L. Sergius Catilīna, nōbilissimī generis vir, sed ingeniī prāvissimī, ad dēlendam patriam coniūrāvit cum quibusdam clārīs quidem, sed audācibus virīs. Ā Cicerōne urbe expulsus est. Sociī ēius dēprehēnsī in carcere strangulātī sunt, ab Antōniō alterō cōnsule Catilīna ipse victus proeliō est interfectus.  
 
@@ -1059,7 +1058,7 @@ Regulus Sent to Rome to Solicit Peace, 250 BCE
 
 ### Chapter 21: Titus Emperor, 79 – 81 CE 
 
- (1) Huic Titus fīlius successit, quī et ipse Vespasiānus est dictus, vir omnium virtūtum genere mīrābilis adeō, ut “amor et dēliciae humānī generis” dīcerētur, facundissimus, bellicōsissimus, moderātissimus. Causās Latīnē ēgit, poēmata et tragoediās Graecē composuit. 
+(1) Huic Titus fīlius successit, quī et ipse Vespasiānus est dictus, vir omnium virtūtum genere mīrābilis adeō, ut “amor et dēliciae humānī generis” dīcerētur, facundissimus, bellicōsissimus, moderātissimus. Causās Latīnē ēgit, poēmata et tragoediās Graecē composuit. 
 
 (2) In oppūgnātiōne Hieroslymōrum sub patre mīlitāns duodecim prōpūgnātōrēs duodecim sagittārum cōnfīxit ictibus. Rōmae tantae cīvīlitātis in imperiō fuit, ut nūllum omnīnō pūniret, convictōs adversum sē coniūrātiōnis dīmīserit vel in eādem familiāritāte quam anteā habuerit. 
 
@@ -1231,9 +1230,6 @@ Regulus Sent to Rome to Solicit Peace, 250 BCE
 
 (1) Successit huic Aurēlius Alexander, ab exercitū Caesar, ā senātū Augustus nōminātus, iuvenis admodum; susceptōque adversus Persās bellō Xerxēn eōrum rēgem glōriōsissimē vīcit. Mīlitārem disciplīnam sevērissimē rēxit. Quāsdam tumultuantēs legiōnēs integrās exauctōrāvit. Adsessōrem habuit vel scriniī magistrum Ulpiānum iūris conditōrem. Rōmae quoque favōrābilis fuit. Periit in Galliā mīlitārī tumultū tertiō decimō imperiī annō et diē nōnō. In Mamaeam mātrem suam ūnicē pius. 
 
- ​​
-​
-
 ## Book 9: From the Accession of Maximus to the Abdication of Diocletian, 235 – 305 CE 
 
 ### Chapter 1: Maximinus Emperor, 235-237 CE 
@@ -1258,7 +1254,7 @@ Regulus Sent to Rome to Solicit Peace, 250 BCE
 
 ### Chapter 5: Gallus Hostilianus and Volusianus Emperors, 251 – 253 CE 
 
- (1) Mox imperātōrēs creātī sunt Gallus Hostīliānus et Gallī fīlius Volusiānus. Sub hīs Aemiliānus in Moesiā rēs novās mōlītus est; ad quem opprimendum cum ambō profectī essent, Interamnae interfectī sunt nōn complētō bienniō. Nihil omnīnō clārum gessērunt. Sōlā pestilentiā et morbīs atque aegritūdinibus nōtus eōrum prīncipātus fuit. 
+(1) Mox imperātōrēs creātī sunt Gallus Hostīliānus et Gallī fīlius Volusiānus. Sub hīs Aemiliānus in Moesiā rēs novās mōlītus est; ad quem opprimendum cum ambō profectī essent, Interamnae interfectī sunt nōn complētō bienniō. Nihil omnīnō clārum gessērunt. Sōlā pestilentiā et morbīs atque aegritūdinibus nōtus eōrum prīncipātus fuit. 
 
 ### Chapter 6 
 
