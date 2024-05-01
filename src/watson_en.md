@@ -822,45 +822,65 @@ War with Sertorius in Spain; wars in Macedonia, Pamphylia, Cilicia, and Dalmatia
 
 ### I
 
-In the consulate of Marcus Aemilius Lepidus and Quintus Catulus,[1] after Sulla had composed the troubles of the state, new wars broke out; one in Spain, another in Pamphylia and Cilicia, a third in Macedonia, a fourth in Dalmatia. Sertorius, who had taken the side of Marius, dreading the fate of others who had been cut off, excited the Spaniards to a war. The generals sent against him were Quintus Caecilius Metellus, the son of that Metellus who had subdued Jugurtha, and the praetor Lucius Domitius. Domitius was killed by Hirtuleius, Sertorius's general. Metellus contended against Sertorius with various success. At length, as Metellus was thought singly unequal to the war, Cnaeus Pompey was sent into Spain. Thus, two generals being opposed to him, Sertorius often fought with very uncertain fortune. At last, in the eighth year of the war, he was put to death by his own soldiers, and an end made of the war by Cnaeus Pompey, at that time but a young man, and Quintus Metellus Pius; and nearly the whole of Spain was brought under the dominion of the Roman people.
+(1) In the consulate of Marcus Aemilius Lepidus and Quintus Catulus,[1] after Sulla had composed the troubles of the state, new wars broke out; one in Spain, another in Pamphylia and Cilicia, a third in Macedonia, a fourth in Dalmatia.
+
+(2) Sertorius, who had taken the side of Marius, dreading the fate of others who had been cut off, excited the Spaniards to a war. The generals sent against him were Quintus Caecilius Metellus, the son of that Metellus who had subdued Jugurtha, and the praetor Lucius Domitius. Domitius was killed by Hirtuleius, Sertorius's general. Metellus contended against Sertorius with various success. At length, as Metellus was thought singly unequal to the war, Cnaeus Pompey was sent into Spain.
+
+(3) Thus, two generals being opposed to him, Sertorius often fought with very uncertain fortune. At last, in the eighth year of the war, he was put to death by his own soldiers, and an end made of the war by Cnaeus Pompey, at that time but a young man, and Quintus Metellus Pius; and nearly the whole of Spain was brought under the dominion of the Roman people.
 
 ### II
 
-Appius Claudius, on the expiration of his consulate was sent into Macedonia. He had some skirmishes with different tribes that inhabited the province of Rhodopa,[2] and there fell ill and died. Cnaeus Scribonius Curio, on the termination of his consulship, was sent to succeed him. He conquered the Dardanians, penetrated as far as the Danube, and obtained the honour of a triumph, putting an end to the war within three years.
+(1) Appius Claudius, on the expiration of his consulate was sent into Macedonia. He had some skirmishes with different tribes that inhabited the province of Rhodopa,[2] and there fell ill and died.
+
+(2) Cnaeus Scribonius Curio, on the termination of his consulship, was sent to succeed him. He conquered the Dardanians, penetrated as far as the Danube, and obtained the honour of a triumph, putting an end to the war within three years.
 
 ### III
 
-Publius Servilius, an energetic man, was sent, after his consulate, into Cilicia and Pamphilia. He reduced Cilicia, besieged and took the most eminent cities of Lycia, amongst them Phaselis, Olympus, and Corycus. The Isauri he also attacked, and compelled to surrender, and, within three years, put an end to the war. He was the first of the Romans that marched over Mount Taurus. On his return, he was granted a triumph, and acquired the surname of Isauricus.
+(1) Publius Servilius, an energetic man, was sent, after his consulate, into Cilicia and Pamphilia. He reduced Cilicia, besieged and took the most eminent cities of Lycia, amongst them Phaselis, Olympus, and Corycus. The Isauri he also attacked, and compelled to surrender, and, within three years, put an end to the war. He was the first of the Romans that marched over Mount Taurus. On his return, he was granted a triumph, and acquired the surname of Isauricus.
 
 ### IV
 
-Cnaeus Cosconius was sent into Illyricum as proconsul. He reduced a great part of Dalmatia, took Salonae, and, having made an end of the war, returned to Rome after an absence of two years.
+(1) Cnaeus Cosconius was sent into Illyricum as proconsul. He reduced a great part of Dalmatia, took Salonae, and, having made an end of the war, returned to Rome after an absence of two years.
 
 ### V
 
-About the same time, the consul Marcus Aemilius Lepidus, the colleague of Catulus, attempted to kindle a civil war; but in one summer that commotion was suppressed. Thus there were several triumphs at the same time, that of Metellus for Spain, a second for Spain obtained by Pompey, one of Curio for Macedonia, and one of Servilius for Isauria.
+(1) About the same time, the consul Marcus Aemilius Lepidus, the colleague of Catulus, attempted to kindle a civil war; but in one summer that commotion was suppressed.
+
+(2) Thus there were several triumphs at the same time, that of Metellus for Spain, a second for Spain obtained by Pompey, one of Curio for Macedonia, and one of Servilius for Isauria.
 
 ### VI
 
-In the six hundred and seventy-sixth year from the building of the city, in the consulate of Lucius Licinius Lucullus and Marcus Aurelius Cotta,[3] Nicomedes, king of Bithynia, died, appointing by his will the Roman people his heir.
+(1) In the six hundred and seventy-sixth year from the building of the city, in the consulate of Lucius Licinius Lucullus and Marcus Aurelius Cotta,[3] Nicomedes, king of Bithynia, died, appointing by his will the Roman people his heir.
 
-Mithridates, breaking the peace, again proceeded to invade Bithynia and Asia. Both the consuls being sent out against him, met with various success. Cotta, being defeated by him in a battle near Chalcedon, was even forced into the town, and besieged there. But Mithridates, having marched from thence to Cyzicus, that, after capturing that city, he might overrun all Asia, Lucullus, the other consul, met him; and, whilst Mithridates was detained at the siege of Cyzicus, besieged him in the rear, exhausted him with famine, defeated him in several battles, and at last pursued him to Byzantium, now called Constantinople. Lucullus also vanquished his commanders in a sea-fight. Thus, in a single winter and summer, almost a hundred thousand men on the king's side were cut off by Lucullus.
+(2) Mithridates, breaking the peace, again proceeded to invade Bithynia and Asia. Both the consuls being sent out against him, met with various success. Cotta, being defeated by him in a battle near Chalcedon, was even forced into the town, and besieged there.
+
+(3) But Mithridates, having marched from thence to Cyzicus, that, after capturing that city, he might overrun all Asia, Lucullus, the other consul, met him; and, whilst Mithridates was detained at the siege of Cyzicus, besieged him in the rear, exhausted him with famine, defeated him in several battles, and at last pursued him to Byzantium, now called Constantinople. Lucullus also vanquished his commanders in a sea-fight. Thus, in a single winter and summer, almost a hundred thousand men on the king's side were cut off by Lucullus.
 
 ### VII
 
-In the six hundred and seventy-eighth year of Rome, Marcus Licinius Lucullus, the cousin of that Lucullus who had carried on the war against Mithridates, obtained the province of Macedonia. A new war, too, suddenly sprung up in Italy; for eighty-four gladiators, led by Spartacus, Crixus, and Oenomaus, having broken out of a school at Capua, made their escape; and, wandering over Italy, kindled a war in it, not much less serious than that which Hannibal had raised; for, after defeating several generals and two consuls of the Romans, they collected an army of nearly sixty thousand men. They were, however, defeated in Apulia by the proconsul Marcus Licinius Crassus; and, after much calamity to Italy, the war was terminated in its third year.
+(1) In the six hundred and seventy-eighth year of Rome, Marcus Licinius Lucullus, the cousin of that Lucullus who had carried on the war against Mithridates, obtained the province of Macedonia.
+
+(2) A new war, too, suddenly sprung up in Italy; for eighty-four gladiators, led by Spartacus, Crixus, and Oenomaus, having broken out of a school at Capua, made their escape; and, wandering over Italy, kindled a war in it, not much less serious than that which Hannibal had raised; for, after defeating several generals and two consuls of the Romans, they collected an army of nearly sixty thousand men. They were, however, defeated in Apulia by the proconsul Marcus Licinius Crassus; and, after much calamity to Italy, the war was terminated in its third year.
 
 ### VIII
 
-In the six hundred and eighty-first year from the founding of the city, in the consulate of Publius Cornelius Lentulus and Cnaeus Aufidius Orestes,[4] there were but two wars of any importance throughout the Roman empire, the Mithridatic and the Macedonian. Of these the two Luculli, Lucius and Marcus, had the direction. Lucius Lucullus, after the battle at Cyzicus, in which he had conquered Mithridates, and the sea-fight, in which he had overcome his generals, pursued him; and, recovering Paphlagonia and Bithynia, invaded his very kingdom. He took Sinope and Amisus, two most eminent cities of Pontus. In a second battle, near the city Cabira, where Mithridates had assembled a vast army from all parts of his kingdom, thirty thousand of the king's chosen troops were cut in pieces by five thousand of the Romans, and Mithridates was put to flight and his camp plundered. Armenia Minor, also, of which he had taken possession, was wrested from him. Mithridates was, however, received after his flight by Tigranes, the king of Armenia, who at that time reigned in great glory; for he had frequently defeated the Persians, and had made himself master of Mesopotamia, Syria, and part of Phoenicia.
+(1) In the six hundred and eighty-first year from the founding of the city, in the consulate of Publius Cornelius Lentulus and Cnaeus Aufidius Orestes,[4] there were but two wars of any importance throughout the Roman empire, the Mithridatic and the Macedonian. Of these the two Luculli, Lucius and Marcus, had the direction.
+
+(2) Lucius Lucullus, after the battle at Cyzicus, in which he had conquered Mithridates, and the sea-fight, in which he had overcome his generals, pursued him; and, recovering Paphlagonia and Bithynia, invaded his very kingdom. He took Sinope and Amisus, two most eminent cities of Pontus.
+
+(3) In a second battle, near the city Cabira, where Mithridates had assembled a vast army from all parts of his kingdom, thirty thousand of the king's chosen troops were cut in pieces by five thousand of the Romans, and Mithridates was put to flight and his camp plundered. Armenia Minor, also, of which he had taken possession, was wrested from him.
+    
+(4) Mithridates was, however, received after his flight by Tigranes, the king of Armenia, who at that time reigned in great glory; for he had frequently defeated the Persians, and had made himself master of Mesopotamia, Syria, and part of Phoenicia.
 
 ### IX
 
-Lucullus, therefore, still pursuing his routed enemy, entered even the kingdom of Tigranes, who ruled over both the Armenias. Tigranocerta, the most noble city of Armenia, he succeeded in taking; the king himself, who advanced against him with six hundred thousand cuirassiers, and a hundred thousand archers and other troops, he so completely defeated with a force of only eighteen thousand, that he annihilated a great part of the Armenians. Marching from thence to Nisibis, he took that city also, and made the king's brother prisoner. But as those whom Lucullus had left in Pontus with part of the army in order to defend the conquered countries belonging to the Romans, grew negligent and avaricious in their conduct, they gave Mithridates an opportunity of again making an irruption into Pontus, and thus the war was renewed. While Lucullus, after the reduction of Nisibis, was preparing for an expedition against the Persians, a successor was sent out to take his place.
+(1) Lucullus, therefore, still pursuing his routed enemy, entered even the kingdom of Tigranes, who ruled over both the Armenias. Tigranocerta, the most noble city of Armenia, he succeeded in taking; the king himself, who advanced against him with six hundred thousand cuirassiers, and a hundred thousand archers and other troops, he so completely defeated with a force of only eighteen thousand, that he annihilated a great part of the Armenians. Marching from thence to Nisibis, he took that city also, and made the king's brother prisoner.
+
+(2) But as those whom Lucullus had left in Pontus with part of the army in order to defend the conquered countries belonging to the Romans, grew negligent and avaricious in their conduct, they gave Mithridates an opportunity of again making an irruption into Pontus, and thus the war was renewed. While Lucullus, after the reduction of Nisibis, was preparing for an expedition against the Persians, a successor was sent out to take his place.
 
 ### X
 
-The other Lucullus, who had the management of affairs in Macedonia, was the first of the Romans that made war upon the Bessi, defeating them in a great battle on Mount Haemus; he reduced the town of Uscudama, which the Bessi inhabited, on the same day in which he attacked it; he also took Cabyle, and penetrated as far as the river Danube. He then besieged several cities lying above Pontus, where he destroyed Apollonia, Calatis, Parthenopolis, Tomi, Histros, and Burziaone,[5] and, putting an end to the war, returned to Rome. Both the Luculli however triumphed, but the Lucullus, who had fought against Mithridates, with the greater glory, because he had returned victorious over such powerful nations.
+(1) The other Lucullus, who had the management of affairs in Macedonia, was the first of the Romans that made war upon the Bessi, defeating them in a great battle on Mount Haemus; he reduced the town of Uscudama, which the Bessi inhabited, on the same day in which he attacked it; he also took Cabyle, and penetrated as far as the river Danube. He then besieged several cities lying above Pontus, where he destroyed Apollonia, Calatis, Parthenopolis, Tomi, Histros, and Burziaone,[5] and, putting an end to the war, returned to Rome. Both the Luculli however triumphed, but the Lucullus, who had fought against Mithridates, with the greater glory, because he had returned victorious over such powerful nations.
 
 ### XI
 
