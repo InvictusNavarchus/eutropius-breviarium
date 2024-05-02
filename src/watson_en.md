@@ -1006,53 +1006,83 @@ Wars that followed on the death of Julius Caesar, I.----Antony flees to Lepidus,
 
 ### I
 
-After the assassination of Caesar, in about the seven hundred and ninth year of the city, the civil wars were renewed; for the senate favoured the assassins of Caesar; and Antony, the consul, being of Caesar's party, endeavoured to crush them in a civil war. The state therefore being thrown into confusion, Antony, perpetrating many acts of violence, was declared an enemy by the senate. The two consuls, Pansa and Hirtius, were sent in pursuit of him, together with Octavianus, a youth of eighteen years of age, the nephew of Caesar, [1]whom by his will he had appointed his heir, directing him to bear his name; this is the same who was afterwards called Augustus, and obtained the imperial dignity. These three generals therefore marching against Antony, defeated him. It happened, however, that the two victorious consuls lost their lives; and the three armies in consequence became subject to Caesar only.
+(1) After the assassination of Caesar, in about the seven hundred and ninth year of the city, the civil wars were renewed; for the senate favoured the assassins of Caesar; and Antony, the consul, being of Caesar's party, endeavoured to crush them in a civil war. The state therefore being thrown into confusion, Antony, perpetrating many acts of violence, was declared an enemy by the senate.
+
+(2) sThe two consuls, Pansa and Hirtius, were sent in pursuit of him, together with Octavianus, a youth of eighteen years of age, the nephew of Caesar, [1]whom by his will he had appointed his heir, directing him to bear his name; this is the same who was afterwards called Augustus, and obtained the imperial dignity. These three generals therefore marching against Antony, defeated him. It happened, however, that the two victorious consuls lost their lives; and the three armies in consequence became subject to Caesar only.
 
 ### II
 
-Antony, being routed, and having lost his army, fled to Lepidus, who had been master of the horse to Caesar, and was at that time in possession of a strong body of forces, by whom he was well received. By the mediation of Lepidus, Caesar shortly after made peace with Antony, and, as if with intent to avenge the death of his father, by whom he had been adopted in his will, marched to Rome at the head of an army, and forcibly procured his appointment to the consulship in his twentieth year. In conjunction with Antony and Lepidus he proscribed the senate, and proceeded to make himself master of the state by arms. By their acts, Cicero the orator, and many others of the nobility, were put to death.
+(1) Antony, being routed, and having lost his army, fled to Lepidus, who had been master of the horse to Caesar, and was at that time in possession of a strong body of forces, by whom he was well received. By the mediation of Lepidus, Caesar shortly after made peace with Antony, and, as if with intent to avenge the death of his father, by whom he had been adopted in his will, marched to Rome at the head of an army, and forcibly procured his appointment to the consulship in his twentieth year.
+
+(2) In conjunction with Antony and Lepidus he proscribed the senate, and proceeded to make himself master of the state by arms. By their acts, Cicero the orator, and many others of the nobility, were put to death.
 
 ### III
 
-In the meantime Brutus and Cassius, the assassins of Caesar, raised a great war; for there were several armies in Macedonia and the East, of which they took the command. Caesar Octavianus Augustus, therefore, and Mark Antony, proceeding against them (for Lepidus remained for the defence of Italy), came to an engagement at Philippi, a city of Macedonia. In the first battle Antony and Caesar were defeated, but Cassius, the leader of the nobility, fell; in the second they defeated and killed Brutus, and very many of the nobility who had joined them in the war; and the republic was divided among the conquerors, so that Augustus had Spain, the Gauls, and Italy; Antony, Asia, Pontus, and the East. But the consul Lucius Antonius, the brother of him who had fought with Caesar against Brutus and Cassius, kindled a civil war in Italy; and being defeated near Perusia, a city of Tuscany, was taken prisoner, but not put to death.
+(1) In the meantime Brutus and Cassius, the assassins of Caesar, raised a great war; for there were several armies in Macedonia and the East, of which they took the command. Caesar Octavianus Augustus, therefore, and Mark Antony, proceeding against them (for Lepidus remained for the defence of Italy), came to an engagement at Philippi, a city of Macedonia. In the first battle Antony and Caesar were defeated, but Cassius, the leader of the nobility, fell; in the second they defeated and killed Brutus, and very many of the nobility who had joined them in the war;
+
+(3) And the republic was divided among the conquerors, so that Augustus had Spain, the Gauls, and Italy; Antony, Asia, Pontus, and the East.
+
+(4) But the consul Lucius Antonius, the brother of him who had fought with Caesar against Brutus and Cassius, kindled a civil war in Italy; and being defeated near Perusia, a city of Tuscany, was taken prisoner, but not put to death.
 
 ### IV
 
-In the meantime a war of a serious nature was excited in Sicily by Sextus Pompey, the son of Cnaeus Pompey the Great, those that survived of the party of Brutus and Cassius flocking to join him from all parts. The war against Sextus Pompey was carried on by Caesar Augustus Octavianus and Mark Antony. A peace was at length concluded.
+(1) In the meantime a war of a serious nature was excited in Sicily by Sextus Pompey, the son of Cnaeus Pompey the Great, those that survived of the party of Brutus and Cassius flocking to join him from all parts. The war against Sextus Pompey was carried on by Caesar Augustus Octavianus and Mark Antony. A peace was at length concluded.
 
 ### V
 
-About that time Marcus Agrippa met with great success in Aquitania; also Lucius Ventidius Bassus defeated the Persians, who were making incursions into Syria, in three engagements. He killed Pacorus, the son of king Orodes, on that very day on which Orodes, the king of the Persians, had before put Crassus to death by the hands of his general Surena. He was the first who celebrated a most legitimate triumph at Rome over the Parthians.
+(1) About that time Marcus Agrippa met with great success in Aquitania; also Lucius Ventidius Bassus defeated the Persians, who were making incursions into Syria, in three engagements. He killed Pacorus, the son of king Orodes, on that very day on which Orodes, the king of the Persians, had before put Crassus to death by the hands of his general Surena. He was the first who celebrated a most legitimate triumph at Rome over the Parthians.
 
 ### VI
 
-In the meantime Sextus Pompey violated the peace, and, being defeated in a sea-fight, fled to Asia, and was there put to death.
+(1) In the meantime Sextus Pompey violated the peace, and, being defeated in a sea-fight, fled to Asia, and was there put to death. Antony, who was master of Asia and the East, having divorced the sister of Caesar Augustus Octavianus, married Cleopatra, queen of Egypt.
 
-Antony, who was master of Asia and the East, having divorced the sister of Caesar Augustus Octavianus, married Cleopatra, queen of Egypt. He also fought in person against the Persians, and defeated them in the first encounters; but on his return suffered greatly from famine and pestilence; and as the Parthians pressed on him in his retreat, he retired from before them just as if he had been defeated.
+(2) He also fought in person against the Persians, and defeated them in the first encounters; but on his return suffered greatly from famine and pestilence; and as the Parthians pressed on him in his retreat, he retired from before them just as if he had been defeated.
 
 ### VII
 
-He also excited a great civil war, at the instigation of his wife Cleopatra, the queen of Egypt, who aspired with a womanish ambition to reign at Rome. He was defeated by Augustus in the remarkable and celebrated sea-fight at Actium, a place in Epirus; whence he fled into Egypt, and there, as his circumstances grew desperate, since all went over to Augustus, committed suicide. Cleopatra applied to herself an asp, and perished by its venom. Egypt was added to, the Roman empire by Octavianus Augustus, and Cnaeus Cornelius Gallus appointed governor of it; he was the first Roman judge that Egypt had.
+(1) He also excited a great civil war, at the instigation of his wife Cleopatra, the queen of Egypt, who aspired with a womanish ambition to reign at Rome. He was defeated by Augustus in the remarkable and celebrated sea-fight at Actium, a place in Epirus; whence he fled into Egypt, and there, as his circumstances grew desperate, since all went over to Augustus, committed suicide. Cleopatra applied to herself an asp, and perished by its venom. Egypt was added to, the Roman empire by Octavianus Augustus, and Cnaeus Cornelius Gallus appointed governor of it; he was the first Roman judge that Egypt had.
 
 ### VIII
 
-Having thus brought wars to an end throughout the world, OCTAVIANUS AUGUSTUS returned to Rome in the twelfth year after he had been elected consul. From that period he held the government as sole ruler for forty-four years, for during the twelve previous years he had held it in conjunction with Antony and Lepidus. Thus from the beginning of his reign to the end were fifty-six years. He died a natural death in his eighty-sixth year, at the town of Atella in Campania. and his remains are interred at Rome in the Campus Martius. He was a man who was considered in most respects, and not without reason, to resemble a divinity, for scarcely ever was there any one more successful than he in war, or more prudent in peace. During the forty-four years that he held the government alone, he conducted himself with the greatest courtesy, being most liberal to all, and most faithful to his friends, whom he raised to such honours, that he placed them almost on a level with his own dignity.
+(1) Having thus brought wars to an end throughout the world, OCTAVIANUS AUGUSTUS returned to Rome in the twelfth year after he had been elected consul.
+
+(2) From that period he held the government as sole ruler for forty-four years, for during the twelve previous years he had held it in conjunction with Antony and Lepidus.
+
+(3) Thus from the beginning of his reign to the end were fifty-six years.
+
+(4) He died a natural death in his eighty-sixth year, at the town of Atella in Campania. and his remains are interred at Rome in the Campus Martius. He was a man who was considered in most respects, and not without reason, to resemble a divinity, for scarcely ever was there any one more successful than he in war, or more prudent in peace. During the forty-four years that he held the government alone, he conducted himself with the greatest courtesy, being most liberal to all, and most faithful to his friends, whom he raised to such honours, that he placed them almost on a level with his own dignity.
 
 ### IX
 
-At no period was the Roman state more flourishing; for, to say nothing of the civil wars, in which he was unconquered, he added to the Roman empire Egypt, Cantabria, Dalmatia, often before conquered but only then entirely subdued, Pannonia, Aquitania, Illyricum, Rhaetia, the Vindelici and Salassi on the Alps, and all the maritime cities of Pontus, among which the two most noble were Bosporus and Panticapaeon. He also conquered the Dacians in battle; put to the sword numerous forces of the Germans; and drove them beyond the river Elbe, which is in the country of the barbarians far beyond the Rhine. This war however he carried on by the agency of his step-son Drusus, as he had conducted the Pannonian war by that of his other step-son Tiberius, in which he transplanted forty thousand prisoners from Germany, and settled them in Gaul on the bank of the Rhine. He recovered Armenia from the Parthians; the Persians gave him hostages, which they had given to no one before; and also restored the Roman standards, which they had taken from Crassus when he was defeated.
+(1) At no period was the Roman state more flourishing; for, to say nothing of the civil wars, in which he was unconquered, he added to the Roman empire Egypt, Cantabria, Dalmatia, often before conquered but only then entirely subdued, Pannonia, Aquitania, Illyricum, Rhaetia, the Vindelici and Salassi on the Alps, and all the maritime cities of Pontus, among which the two most noble were Bosporus and Panticapaeon. He also conquered the Dacians in battle; put to the sword numerous forces of the Germans; and drove them beyond the river Elbe, which is in the country of the barbarians far beyond the Rhine. This war however he carried on by the agency of his step-son Drusus, as he had conducted the Pannonian war by that of his other step-son Tiberius, in which he transplanted forty thousand prisoners from Germany, and settled them in Gaul on the bank of the Rhine. He recovered Armenia from the Parthians; the Persians gave him hostages, which they had given to no one before; and also restored the Roman standards, which they had taken from Crassus when he was defeated.
 
 ### X
 
-The Scythians and Indians, to whom the Roman name was before unknown, sent him presents and ambassadors. Galatia also was made a province under his reign, having before been an independent kingdom, and Marcus Lollius was the first that governed it, in quality of praetor. So much was he beloved even by the barbarians, that kings, allies of the Roman people, founded cities in his honour, to which they gave the name of Caesarea, as one in Mauritania, built by King Juba, and another in Palestine, which is now a very celebrated city. Many kings, moreover, left their own dominions, and, assuming the Roman dress, that is, the toga, ran by the side of his carriage or his horse. At his death he was styled a divinity. He left the state in a most prosperous condition to his successor Tiberius, who had been his step-son, afterwards his son-in-law, and lastly his son by adoption.
+(1) The Scythians and Indians, to whom the Roman name was before unknown, sent him presents and ambassadors.
+
+(2) Galatia also was made a province under his reign, having before been an independent kingdom, and Marcus Lollius was the first that governed it, in quality of praetor.
+
+(3) So much was he beloved even by the barbarians, that kings, allies of the Roman people, founded cities in his honour, to which they gave the name of Caesarea, as one in Mauritania, built by King Juba, and another in Palestine, which is now a very celebrated city.
+
+(4) Many kings, moreover, left their own dominions, and, assuming the Roman dress, that is, the toga, ran by the side of his carriage or his horse.
+
+(5) At his death he was styled a divinity. He left the state in a most prosperous condition to his successor Tiberius, who had been his step-son, afterwards his son-in-law, and lastly his son by adoption.
 
 ### XI
 
-TIBERIUS distinguished his reign by great indolence, excessive cruelty, unprincipled avarice, and abandoned licentiousness. He fought on no occasion in person; the wars were carried on by his generals. Some kings, whom he induced to visit him by seducing allurements, he never sent back; among them was Archelaus of Cappadocia, whose kingdom also he reduced to the form of a province, and directed that its principal city should be called after his own name; and, having been before called Mazaca, it is now termed Caesarea. He died in Campania, in the three and twentieth year of his reign, and the eighty-third of his age, to the great joy of all men.
+(1) TIBERIUS distinguished his reign by great indolence, excessive cruelty, unprincipled avarice, and abandoned licentiousness. He fought on no occasion in person; the wars were carried on by his generals.
+
+(2) Some kings, whom he induced to visit him by seducing allurements, he never sent back; among them was Archelaus of Cappadocia, whose kingdom also he reduced to the form of a province, and directed that its principal city should be called after his own name; and, having been before called Mazaca, it is now termed Caesarea. He died in Campania, in the three and twentieth year of his reign, and the eighty-third of his age, to the great joy of all men.
 
 ### XII
 
-To him succeeded CAIUS CAESAR, surnamed CALIGULA, the grandson of Drusus, the step-son of Augustus, and grand-nephew[2] of Tiberius himself, a most wicked and cruel prince, who effaced even the memory of Tiberius's enormities. He undertook a war against the Germans; but, after entering Suevia, made no effort to do anything. He committed incest with his sisters, and acknowledged a daughter that he had by one of them. While tyrannizing over all with the utmost avarice, licentiousness, and cruelty, he was assassinated in the palace, in the twenty-ninth year of his age, in the third year, tenth month, and eighth day of his reign.
+(1) To him succeeded CAIUS CAESAR, surnamed CALIGULA, the grandson of Drusus, the step-son of Augustus, and grand-nephew[2] of Tiberius himself, a most wicked and cruel prince, who effaced even the memory of Tiberius's enormities.
+
+(2) He undertook a war against the Germans; but, after entering Suevia, made no effort to do anything.
+
+(3) He committed incest with his sisters, and acknowledged a daughter that he had by one of them.
+
+(4) While tyrannizing over all with the utmost avarice, licentiousness, and cruelty, he was assassinated in the palace, in the twenty-ninth year of his age, in the third year, tenth month, and eighth day of his reign.
 
 ### XIII
 
