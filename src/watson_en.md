@@ -1404,47 +1404,53 @@ Maximin successful in his wars in Germany, I.----Three emperors at once, Pupienu
 
 ### I
 
-After him MAXIMIN came to the throne, the first emperor that was elected from the army by the will of the soldiers, no approbation of the senate being given, and he himself not being a senator. After conducting a successful war against the Germans, and being on that account saluted Imperator[1] by his troops, he was slain by Pupienus at Aquileia,[2] together with his son who was then but a boy, his soldiers forsaking him. He had reigned, with his son, three years and a few days.
+(1) After him MAXIMIN came to the throne, the first emperor that was elected from the army by the will of the soldiers, no approbation of the senate being given, and he himself not being a senator. After conducting a successful war against the Germans, and being on that account saluted Imperator[1] by his troops, he was slain by Pupienus at Aquileia,[2] together with his son who was then but a boy, his soldiers forsaking him. He had reigned, with his son, three years and a few days.
 
 ### II
 
-There were then three emperors at the same time, PUPIENUS, BALBINUS, and GORDIAN, the two former of very obscure origin, the last of noble birth; for the elder Gordian, his father, had been chosen prince by the consent of the soldiery in the reign of Maximin, when he held the proconsulship of Africa. When Balbinus and Pupienus came to Rome, they were killed in the palace; and the empire was given to Gordian alone.
+(1) There were then three emperors at the same time, PUPIENUS, BALBINUS, and GORDIAN, the two former of very obscure origin, the last of noble birth; for the elder Gordian, his father, had been chosen prince by the consent of the soldiery in the reign of Maximin, when he held the proconsulship of Africa.
 
-After Gordian, when quite a boy, had married Tranquillina at Rome, he opened the temple of Janus, and, setting out for the east, made war upon the Parthians, who were then proceeding to make an irruption. This war he soon conducted with success, and made havoc of the Persians in great battles. As he was returning, he was killed, not far from the Roman boundaries, by the treachery of Philip who reigned after him. The Roman soldiers raised a monument for him, twenty miles from Circessus, which is now a fortress of the Romans, overlooking the Euphrates. His relics they brought to Rome, and gave him the title of god.
+(2) When Balbinus and Pupienus came to Rome, they were killed in the palace; and the empire was given to Gordian alone. After Gordian, when quite a boy, had married Tranquillina at Rome, he opened the temple of Janus, and, setting out for the east, made war upon the Parthians, who were then proceeding to make an irruption. This war he soon conducted with success, and made havoc of the Persians in great battles.
+
+(3) As he was returning, he was killed, not far from the Roman boundaries, by the treachery of Philip who reigned after him. The Roman soldiers raised a monument for him, twenty miles from Circessus, which is now a fortress of the Romans, overlooking the Euphrates. His relics they brought to Rome, and gave him the title of god.
 
 ### III
 
-When Gordian was killed, the two PHILIPS, father and son, seized on the government, and, having brought off the army safe, set out from Syria for Italy. In their reign the thousandth year of the city of Rome was celebrated with games and spectacles of vast magnificence. Soon after, both of them were put to death by the soldiery; the elder Philip at Verona, the younger at Rome. They reigned but five years. They were however ranked among the gods.
+(1) When Gordian was killed, the two PHILIPS, father and son, seized on the government, and, having brought off the army safe, set out from Syria for Italy. In their reign the thousandth year of the city of Rome was celebrated with games and spectacles of vast magnificence. Soon after, both of them were put to death by the soldiery; the elder Philip at Verona, the younger at Rome. They reigned but five years. They were however ranked among the gods.
 
 ### IV
 
-After these, DECIUS, a native of Lower Pannonia, born at Budalia, assumed the government. He suppressed a civil war which had been raised in Gaul. He created his son Caesar. He built a bath at Rome. When he and his son had reigned two years, they were both killed in the country of the Barbarians, and enrolled among the gods.
+(1) After these, DECIUS, a native of Lower Pannonia, born at Budalia, assumed the government. He suppressed a civil war which had been raised in Gaul. He created his son Caesar. He built a bath at Rome. When he and his son had reigned two years, they were both killed in the country of the Barbarians, and enrolled among the gods.
 
 ### V
 
-Immediately after, GALLUS, HOSTILIANUS, and VOLUSIANUS the son of Gallus, were created emperors. In their reign Aemilianus attempted an insurrection in Moesia; and both[3] of them, setting out to stop his progress, were slain at Interamna, when they had not quite completed a reign of two years. They did nothing of any account. Their reign was remarkable only for a pestilence, and for other diseases and afflictions.
+(1) Immediately after, GALLUS, HOSTILIANUS, and VOLUSIANUS the son of Gallus, were created emperors. In their reign Aemilianus attempted an insurrection in Moesia; and both[3] of them, setting out to stop his progress, were slain at Interamna, when they had not quite completed a reign of two years. They did nothing of any account. Their reign was remarkable only for a pestilence, and for other diseases and afflictions.
 
 ### VI
 
-AEMILIANUS was little distinguished by birth, and less distinguished by his reign, in the third month of which he was cut off.[4]
+(1) AEMILIANUS was little distinguished by birth, and less distinguished by his reign, in the third month of which he was cut off.[4]
 
 ### VII
 
-LICINIUS VALERIAN, who was then employed in Rhaetia and Noricum, was next made general by the army, and soon after emperor. GALLIENUS also received the title of Caesar from the senate at Rome. The reign of these princes was injurious, and almost fatal, to the Roman name, either through their ill-fortune or want of energy. The Germans advanced as far as Ravenna. Valerian, while he was occupied in a war in Mesopotamia, was overthrown by Sapor king of Persia, and being soon after made prisoner, grew old in ignominious slavery among the Parthians.
+(1) LICINIUS VALERIAN, who was then employed in Rhaetia and Noricum, was next made general by the army, and soon after emperor. GALLIENUS also received the title of Caesar from the senate at Rome. The reign of these princes was injurious, and almost fatal, to the Roman name, either through their ill-fortune or want of energy. The Germans advanced as far as Ravenna. Valerian, while he was occupied in a war in Mesopotamia, was overthrown by Sapor king of Persia, and being soon after made prisoner, grew old in ignominious slavery among the Parthians.
 
 ### VIII
 
-Gallienus, who was made emperor when quite a young man, exercised his power at first happily, afterwards fairly, and at last mischievously. In his youth he performed many gallant acts in Gaul and Illyricum, killing Ingenuus, who had assumed the purple, at Mursa,[5] and Regalianus. He was then for a long time quiet and gentle; afterwards, abandoning himself to all manner of licentiousness, he relaxed the reins of government with disgraceful inactivity and carelesness. The Alemanni, having laid waste Gaul, penetrated into Italy. Dacia, which had been added to the empire beyond the Danube, was lost. Greece, Macedonia, Pontus, Asia, were devastated by the Goths. Pannonia was depopulated by the Sarmatians and Quadi. The Germans made their way as far as Spain, and took the noble city of Tarraco. The Parthians, after taking possession of Mesopotamia, began to bring Syria under their power.
+(1) Gallienus, who was made emperor when quite a young man, exercised his power at first happily, afterwards fairly, and at last mischievously. In his youth he performed many gallant acts in Gaul and Illyricum, killing Ingenuus, who had assumed the purple, at Mursa,[5] and Regalianus. He was then for a long time quiet and gentle; afterwards, abandoning himself to all manner of licentiousness, he relaxed the reins of government with disgraceful inactivity and carelesness.
+
+(2) The Alemanni, having laid waste Gaul, penetrated into Italy. Dacia, which had been added to the empire beyond the Danube, was lost. Greece, Macedonia, Pontus, Asia, were devastated by the Goths. Pannonia was depopulated by the Sarmatians and Quadi. The Germans made their way as far as Spain, and took the noble city of Tarraco. The Parthians, after taking possession of Mesopotamia, began to bring Syria under their power.
 
 ### IX
 
-When affairs were in this desperate condition, and the Roman empire almost ruined, POSTUMUS, a man of very obscure birth, assumed the purple in Gaul, and held the government with such ability for ten years, that he recruited the provinces, which had been almost ruined, by his great energy and judgment; but he was killed in a mutiny of the army, because he would not deliver up Moguntiacum, which had rebelled against him, to be plundered by the soldiers, at the time when Lucius Aelianus was endeavouring to effect a change of government.
+(1) When affairs were in this desperate condition, and the Roman empire almost ruined, POSTUMUS, a man of very obscure birth, assumed the purple in Gaul, and held the government with such ability for ten years, that he recruited the provinces, which had been almost ruined, by his great energy and judgment; but he was killed in a mutiny of the army, because he would not deliver up Moguntiacum, which had rebelled against him, to be plundered by the soldiers, at the time when Lucius Aelianus was endeavouring to effect a change of government.
 
-After him Marius, a contemptible mechanic,[6] assumed the purple, and was killed two days after. Victorinus then took on himself the government of Gaul; a man of great energy; but, as he was abandoned to excessive licentiousness, and corrupted other men's wives, he was assassinated at Agrippina,[7] in the second year of his reign, one of his secretaries having contrived a plot against him.
+(2) After him Marius, a contemptible mechanic,[6] assumed the purple, and was killed two days after.
+
+(3) Victorinus then took on himself the government of Gaul; a man of great energy; but, as he was abandoned to excessive licentiousness, and corrupted other men's wives, he was assassinated at Agrippina,[7] in the second year of his reign, one of his secretaries having contrived a plot against him.
 
 ### X
 
-To him succeeded Tetricus, a senator, who, when he was governing Aquitania with the title of prefect, was chosen emperor in his absence, and assumed the purple at Bourdeaux. He had to endure many insurrections among the soldiery. But while these transactions were passing in Gaul, the Persians, in the east, were overthrown by Odenathus, who, having defended Syria and recovered Mesopotamia, penetrated into the country as far as Ctesiphon.
+(1) To him succeeded Tetricus, a senator, who, when he was governing Aquitania with the title of prefect, was chosen emperor in his absence, and assumed the purple at Bourdeaux. He had to endure many insurrections among the soldiery. But while these transactions were passing in Gaul, the Persians, in the east, were overthrown by Odenathus, who, having defended Syria and recovered Mesopotamia, penetrated into the country as far as Ctesiphon.
 
 ### XI
 
