@@ -996,9 +996,9 @@ Regulus Sent to Rome to Solicit Peace, 250 BCE
 
 (2) Ad postrēmum sē tantō dēdecōre prōstituit, ut et saltāret et cantāret in scaenā citharoedicō habitū vel tragicō. Parricīdia multa commīsit frātre, uxōre, <sorōre,> mātre interfectīs. Urbem Rōmam incendit, ut spectāculī ēius imāginem cerneret, quālī ōlim Trōia capta ārserat. 
 
-(4) In rē mīlitārī nihil omnīnō ausus Britanniam paene āmīsit. Nam duo sub eō nōbilissima oppida capta illīc atque ēversa sunt. Armeniam Parthī sustulērunt legiōnēsque Rōmānās sub iugum mīsērunt. 
+(3) In rē mīlitārī nihil omnīnō ausus Britanniam paene āmīsit. Nam duo sub eō nōbilissima oppida capta illīc atque ēversa sunt. Armeniam Parthī sustulērunt legiōnēsque Rōmānās sub iugum mīsērunt. 
 
-(5) Duae tamen sub eō prōvinciae factae sunt, Pontus Polemōniacus concēdente rēge Polemōne et Alpēs Cottiae Cottiō rēge dēfūnctō. 
+(4) Duae tamen sub eō prōvinciae factae sunt, Pontus Polemōniacus concēdente rēge Polemōne et Alpēs Cottiae Cottiō rēge dēfūnctō. 
 
 ### Chapter 15 
 
