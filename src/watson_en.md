@@ -1086,43 +1086,79 @@ Wars that followed on the death of Julius Caesar, I.----Antony flees to Lepidus,
 
 ### XIII
 
-After him reigned CLAUDIUS, the uncle of Caligula, and son of that Drusus who has a monument at Moguntiacum, whose grandson Caligula also was. His reign was of no striking character; he acted, in many respects, with gentleness and moderation, in some with cruelty and folly. He made war upon Britain, which no Roman since Julius Caesar had visited; and, having reduced it through the agency of Cnaeus Sentius and Aulus Plautius, illustrious and noble men, he celebrated a magnificent triumph. Certain islands also, called the Orcades, situated in the ocean, beyond Britain, he added to the Roman empire, and gave his son the name of Britannicus. So condescending, too, was he towards some of his friends, that he even attended Plautius, a man of noble birth, who had obtained many signal successes in the expedition to Britain, in his triumph, and walked at his left hand when he went up to the Capitol. He lived to the age of sixty-four, and reigned fourteen years; and after his death was consecrated[3] and deified.
+(1) After him reigned CLAUDIUS, the uncle of Caligula, and son of that Drusus who has a monument at Moguntiacum, whose grandson Caligula also was. His reign was of no striking character; he acted, in many respects, with gentleness and moderation, in some with cruelty and folly.
+
+(2) He made war upon Britain, which no Roman since Julius Caesar had visited; and, having reduced it through the agency of Cnaeus Sentius and Aulus Plautius, illustrious and noble men, he celebrated a magnificent triumph.
+
+(3) Certain islands also, called the Orcades, situated in the ocean, beyond Britain, he added to the Roman empire, and gave his son the name of Britannicus.
+
+(4) So condescending, too, was he towards some of his friends, that he even attended Plautius, a man of noble birth, who had obtained many signal successes in the expedition to Britain, in his triumph, and walked at his left hand when he went up to the Capitol.
+
+(5) He lived to the age of sixty-four, and reigned fourteen years; and after his death was consecrated[3] and deified.
 
 ### XIV
 
-To him succeeded NERO, who greatly resembled his uncle Caligula, and both disgraced and weakened the Roman empire; he indulged in such extraordinary luxury and extravagance, that, after the example of Caius Caligula, he even bathed in hot and cold perfumes, and fished with golden nets, which he drew up with cords of purple silk. He put to death a very great number of the senate. To all good men he was an enemy. At last he exposed himself in so disgraceful a manner, that he danced and sung upon the stage in the dress of a harp-player and tragedian. He was guilty of many murders, his brother, wife, and mother, being put to death by him. He set on fire the city of Rome, that he might enjoy the sight of a spectacle such as Troy formerly presented when taken and burned.
+(1) To him succeeded NERO, who greatly resembled his uncle Caligula, and both disgraced and weakened the Roman empire; he indulged in such extraordinary luxury and extravagance, that, after the example of Caius Caligula, he even bathed in hot and cold perfumes, and fished with golden nets, which he drew up with cords of purple silk. He put to death a very great number of the senate. To all good men he was an enemy.
 
-In military affairs he attempted nothing. Britain he almost lost; for two of its most noble towns[4] were taken and levelled to the ground under his reign. The Parthian's took from him Armenia, and compelled the Roman legions to pass under the yoke. Two provinces however were formed under him; Pontus Polemoniacus, by the concession of King Polemon; and the Cottian Alps, on the death of King Cottius.
+(2) At last he exposed himself in so disgraceful a manner, that he danced and sung upon the stage in the dress of a harp-player and tragedian. He was guilty of many murders, his brother, wife, and mother, being put to death by him. He set on fire the city of Rome, that he might enjoy the sight of a spectacle such as Troy formerly presented when taken and burned.
+
+(3) In military affairs he attempted nothing. Britain he almost lost; for two of its most noble towns[4] were taken and levelled to the ground under his reign. The Parthian's took from him Armenia, and compelled the Roman legions to pass under the yoke.
+
+(4) Two provinces however were formed under him; Pontus Polemoniacus, by the concession of King Polemon; and the Cottian Alps, on the death of King Cottius.
 
 ### XV
 
-When, having become detestable by such conduct to the city of Rome, and being deserted at the same time by every one, and declared an enemy by the senate, he was sought for to be led to punishment (the punishment being, that he should be dragged naked through the streets, with a fork placed under his head,[5] be beaten to death with rods, and then hurled from the Tarpeian rock), he fled from the palace, and killed himself in a suburban villa of one of his freed-men, between the Salarian and Nomentane roads, at the fourth milestone from the city. He built those hot baths at Rome, which were formerly called the Neronian, but now the Alexandrian. He died in the thirty-second year of his age, and the fourteenth year of his reign; and in him all the family of Augustus became extinct.
+(1) When, having become detestable by such conduct to the city of Rome, and being deserted at the same time by every one, and declared an enemy by the senate, he was sought for to be led to punishment (the punishment being, that he should be dragged naked through the streets, with a fork placed under his head,[5] be beaten to death with rods, and then hurled from the Tarpeian rock), he fled from the palace, and killed himself in a suburban villa of one of his freed-men, between the Salarian and Nomentane roads, at the fourth milestone from the city.
+
+(2) He built those hot baths at Rome, which were formerly called the Neronian, but now the Alexandrian.
+
+(3) He died in the thirty-second year of his age, and the fourteenth year of his reign; and in him all the family of Augustus became extinct.
 
 ### XVI
 
-To Nero succeeded SERVIUS GALBA, a senator of a very ancient and noble family, elected emperor when in his seventy-third year by the Spaniards and Gauls, and soon after readily acknowledged by the whole army; for his life, though but that of a private person,[6] had been distinguished by many military and civil exploits, having been often consul, often proconsul, and frequently general in most important wars. His reign was short, but had a promising commencement, except that he seemed to incline too much to severity. He was killed however by the treachery of Otho, in the seventh month of his reign, in the forum at Rome, and buried in his gardens, which are situated in the Aurelian way, not far from the city.
+(1) To Nero succeeded SERVIUS GALBA, a senator of a very ancient and noble family, elected emperor when in his seventy-third year by the Spaniards and Gauls, and soon after readily acknowledged by the whole army;
+
+(2) For his life, though but that of a private person,[6] had been distinguished by many military and civil exploits, having been often consul, often proconsul, and frequently general in most important wars. His reign was short, but had a promising commencement, except that he seemed to incline too much to severity.
+
+(3) He was killed however by the treachery of Otho, in the seventh month of his reign, in the forum at Rome, and buried in his gardens, which are situated in the Aurelian way, not far from the city.
 
 ### XVII
 
-OTHO, after Galba was killed, took possession of the government, a man of a nobler descent on the mother's than the father's side, but obscure on neither. In private life he was effeminate, and an intimate of Nero; in his government he could give no evidence of his disposition; for Vitellius, about the same time that Otho had slain Galba, having been also chosen emperor by the German armies, Otho, having commenced a war against him, and having sustained a defeat in a slight skirmish near Bebriacum in Italy, voluntarily, though he had still powerful forces remaining, put an end to his life, in spite of the entreaties of his soldiers that he would not so soon despair of the issue of the war; saying, "that he was not of sufficient importance that a civil war should be raised on his account." He perished thus voluntarily in the thirty-eighth year of his age, and on the ninety-fifth day of his reign.
+(1) OTHO, after Galba was killed, took possession of the government, a man of a nobler descent on the mother's than the father's side, but obscure on neither.
+
+(2) In private life he was effeminate, and an intimate of Nero; in his government he could give no evidence of his disposition;
+
+(3) for Vitellius, about the same time that Otho had slain Galba, having been also chosen emperor by the German armies, Otho, having commenced a war against him, and having sustained a defeat in a slight skirmish near Bebriacum in Italy, voluntarily, though he had still powerful forces remaining, put an end to his life, in spite of the entreaties of his soldiers that he would not so soon despair of the issue of the war; saying, "that he was not of sufficient importance that a civil war should be raised on his account." He perished thus voluntarily in the thirty-eighth year of his age, and on the ninety-fifth day of his reign.
 
 ### XVIII
 
-VITELLIUS next obtained the imperial dignity, of a family rather honourable than noble, for his father was not of very high birth, though he had filled three regular consulships. He reigned most disgracefully, being distinguished by the greatest cruelty, but especially by gluttony and voraciousness, since he is reported to have often feasted four or five times a day. A most remarkable supper at least has been recorded, which his brother Vitellius set before him, and in which, besides other expensive dainties, two thousand fishes and seven thousand birds are said to have been placed on the table.
+(1) VITELLIUS next obtained the imperial dignity, of a family rather honourable than noble, for his father was not of very high birth, though he had filled three regular consulships.
 
-Being anxious to resemble Nero, and aiming so openly at this that he even paid respect to his remains, which had been meanly buried, he was slain by the generals of the emperor Vespasian, Vitellius having previously put to death Sabinus, Vespasian's brother, and burned his corpse at the same time with the Capitol. When killed, he was dragged naked, with great ignominy, through the public streets of the city, with his hair erect, and his head raised by means of a sword placed under his chin, and pelted with dung on the face and breast by all that came in the way; at last his throat was cut, and he was thrown into the Tiber, and had not even the common rites of burial. He perished in the fifty-seventh year of his age, in the eighth month and first day of his reign.
+(2) He reigned most disgracefully, being distinguished by the greatest cruelty, but especially by gluttony and voraciousness, since he is reported to have often feasted four or five times a day.
+
+(3) A most remarkable supper at least has been recorded, which his brother Vitellius set before him, and in which, besides other expensive dainties, two thousand fishes and seven thousand birds are said to have been placed on the table.
+
+(4) Being anxious to resemble Nero, and aiming so openly at this that he even paid respect to his remains, which had been meanly buried, he was slain by the generals of the emperor Vespasian, Vitellius having previously put to death Sabinus, Vespasian's brother, and burned his corpse at the same time with the Capitol.
+
+(5) When killed, he was dragged naked, with great ignominy, through the public streets of the city, with his hair erect, and his head raised by means of a sword placed under his chin, and pelted with dung on the face and breast by all that came in the way; at last his throat was cut, and he was thrown into the Tiber, and had not even the common rites of burial.
+
+(6) He perished in the fifty-seventh year of his age, in the eighth month and first day of his reign.
 
 ### XIX
 
-To him succeeded VESPASIAN, who had been chosen emperor in Palestine, a prince indeed of obscure birth, but worthy to be compared with the best emperors, and in private life[7] greatly distinguished, as he had been sent by Claudius into Germany, and afterwards into Britain, and had contended two and thirty times with the enemy; he had also added to the Roman empire two very powerful nations,[8] twenty towns, and the Isle of Wight on the coast of Britain. At Rome he acted with the greatest forbearance during his government; though he was rather too eager after money; not however that he deprived any one of it unjustly, and even when he had collected it with the greatest diligence and anxiety, he was in the habit of distributing it most readily, especially to the indigent; nor was the liberality of any prince before him greater or more judicious: he was also of a most mild and amiable disposition, insomuch that he never willingly inflicted a severer penalty than banishment, even on persons convicted of treason against himself.
+(1) To him succeeded VESPASIAN, who had been chosen emperor in Palestine, a prince indeed of obscure birth, but worthy to be compared with the best emperors, and in private life[7] greatly distinguished, as he had been sent by Claudius into Germany, and afterwards into Britain, and had contended two and thirty times with the enemy; he had also added to the Roman empire two very powerful nations,[8] twenty towns, and the Isle of Wight on the coast of Britain.
 
-Under this prince Judaea was added to the Roman empire, and Jerusalem, the most celebrated city of Palestine. He also reduced to the form of provinces Achaia, Lycia, Rhodes, Byzantium, Samos, which had been free till this period; together with Thrace, Cilicia, and Comagena, which had been governed by their respective kings in alliance with the Romans.
+(2) At Rome he acted with the greatest forbearance during his government; though he was rather too eager after money; not however that he deprived any one of it unjustly, and even when he had collected it with the greatest diligence and anxiety, he was in the habit of distributing it most readily, especially to the indigent; nor was the liberality of any prince before him greater or more judicious: he was also of a most mild and amiable disposition, insomuch that he never willingly inflicted a severer penalty than banishment, even on persons convicted of treason against himself.
+
+(3) Under this prince Judaea was added to the Roman empire, and Jerusalem, the most celebrated city of Palestine.
+
+(4) He also reduced to the form of provinces Achaia, Lycia, Rhodes, Byzantium, Samos, which had been free till this period; together with Thrace, Cilicia, and Comagena, which had been governed by their respective kings in alliance with the Romans.
 
 ### XX
 
-Offences and animosities he never bore in mind; reproaches uttered against himself by lawyers and philosophers he bore with indulgence, but was a strenuous enforcer of military discipline. He triumphed, together with his son Titus, on account of the taking of Jerusalem.
+(1) Offences and animosities he never bore in mind; reproaches uttered against himself by lawyers and philosophers he bore with indulgence, but was a strenuous enforcer of military discipline.
 
-After having thus become an object of love and favour with the senate and the people, and indeed with all men, he died of a diarrhoea, in his own villa in the Sabine country, in the sixty-ninth year of his age, the ninth year and seventh day of his reign; and was enrolled among the gods.
+(2) He triumphed, together with his son Titus, on account of the taking of Jerusalem. After having thus become an object of love and favour with the senate and the people, and indeed with all men, he died of a diarrhoea, in his own villa in the Sabine country, in the sixty-ninth year of his age, the ninth year and seventh day of his reign; and was enrolled among the gods.
 
 To him succeeded his son TITUS, who was also called Vespasian, a man remarkable for every species of virtue, so that he was styled the favourite and delight of mankind. He was extremely eloquent, warlike, and temperate; he pleaded causes in Latin, and composed poems and tragedies in Greek. At the siege of Jerusalem, while serving under his father, he killed twelve of the besieged with wounds from as many arrows. During his government at Rome, such was his lenity towards the citizens, that he did not punish a single person; and even some that were convicted of a conspiracy against himself he released, and treated them on the same terms of intimacy as before. Such was his good-nature and generosity, that he never refused any thing to any one, and being blamed by his friends on this account, replied, that no one ought to leave an emperor in discontent. Hence, having recollected once at supper, that he had conferred no obligation on any one that day, he exclaimed: "O, my friends! I have lost this day!" He built an amphitheatre at Rome, and slaughtered five thousand wild beasts at the dedication of it.
 
