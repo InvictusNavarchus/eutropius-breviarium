@@ -826,7 +826,7 @@ Regulus Sent to Rome to Solicit Peace, 250 BCE
 
 (2) Et cum vēnisset in Syriam, Seleucīam vīcīnam Antiochīae cīvitātem lībertāte dōnāvit, quod rēgem Tigrānēn nōn recēpisset. Antiochēnsibus obsidēs reddidit. Aliquantum agrōrum Daphnēnsibus dedit, quō lūcus ibi spatiōsior fieret, dēlectātus locī amoenitāte et aquārum abundantiā. Īnde ad Iūdaeam trānsgressus est, Hierosolyma, caput gentis tertiō mēnse cēpit XII mīlibus Iūdaeōrum occīsīs, cēterīs in fidem acceptīs. Hīs gestīs in Asiam sē recēpit et fīnem antīquissimō bellō dedit.  
 
-Chapter 15: Cicero Consul. Conspiracy of Catiline, 63 BCE 
+### Chapter 15: Cicero Consul. Conspiracy of Catiline, 63 BCE 
 
 (1) M. Tulliō Cicerōne ōrātōre et C. Antōniō cōnsulibus, annō ab urbe conditā sexcentēsimō octōgēsimō nōnō, L. Sergius Catilīna, nōbilissimī generis vir, sed ingeniī prāvissimī, ad dēlendam patriam coniūrāvit cum quibusdam clārīs quidem, sed audācibus virīs. Ā Cicerōne urbe expulsus est. Sociī ēius dēprehēnsī in carcere strangulātī sunt, ab Antōniō alterō cōnsule Catilīna ipse victus proeliō est interfectus.  
 
