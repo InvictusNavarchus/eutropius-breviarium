@@ -1160,7 +1160,15 @@ Wars that followed on the death of Julius Caesar, I.----Antony flees to Lepidus,
 
 (2) He triumphed, together with his son Titus, on account of the taking of Jerusalem. After having thus become an object of love and favour with the senate and the people, and indeed with all men, he died of a diarrhoea, in his own villa in the Sabine country, in the sixty-ninth year of his age, the ninth year and seventh day of his reign; and was enrolled among the gods.
 
-To him succeeded his son TITUS, who was also called Vespasian, a man remarkable for every species of virtue, so that he was styled the favourite and delight of mankind. He was extremely eloquent, warlike, and temperate; he pleaded causes in Latin, and composed poems and tragedies in Greek. At the siege of Jerusalem, while serving under his father, he killed twelve of the besieged with wounds from as many arrows. During his government at Rome, such was his lenity towards the citizens, that he did not punish a single person; and even some that were convicted of a conspiracy against himself he released, and treated them on the same terms of intimacy as before. Such was his good-nature and generosity, that he never refused any thing to any one, and being blamed by his friends on this account, replied, that no one ought to leave an emperor in discontent. Hence, having recollected once at supper, that he had conferred no obligation on any one that day, he exclaimed: "O, my friends! I have lost this day!" He built an amphitheatre at Rome, and slaughtered five thousand wild beasts at the dedication of it.
+## XXI
+
+(1) To him succeeded his son TITUS, who was also called Vespasian, a man remarkable for every species of virtue, so that he was styled the favourite and delight of mankind. He was extremely eloquent, warlike, and temperate; he pleaded causes in Latin, and composed poems and tragedies in Greek.
+
+(2) At the siege of Jerusalem, while serving under his father, he killed twelve of the besieged with wounds from as many arrows. During his government at Rome, such was his lenity towards the citizens, that he did not punish a single person; and even some that were convicted of a conspiracy against himself he released, and treated them on the same terms of intimacy as before.
+
+(3) Such was his good-nature and generosity, that he never refused any thing to any one, and being blamed by his friends on this account, replied, that no one ought to leave an emperor in discontent. Hence, having recollected once at supper, that he had conferred no obligation on any one that day, he exclaimed: "O, my friends! I have lost this day!"
+
+(4) He built an amphitheatre at Rome, and slaughtered five thousand wild beasts at the dedication of it.
 
 ### XXII
 
