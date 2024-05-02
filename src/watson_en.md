@@ -1172,15 +1172,23 @@ Wars that followed on the death of Julius Caesar, I.----Antony flees to Lepidus,
 
 ### XXII
 
-While beloved for such conduct, with extraordinary affection, he fell ill and died in the same villa as his father, two years, eight months, and twenty days after he became emperor, and in the forty-second year of his age. So great was the public lamentation on his death, that all mourned as for a loss in their own families. The senate, having received intelligence of his death about the evening, hurried into the senate-house in the night, and heaped upon him after his death even more expressions of good will and commendation, than they had uttered when he was alive and present among them. He was enrolled among the gods.
+(1) While beloved for such conduct, with extraordinary affection, he fell ill and died in the same villa as his father, two years, eight months, and twenty days after he became emperor, and in the forty-second year of his age.
+
+(2) So great was the public lamentation on his death, that all mourned as for a loss in their own families. The senate, having received intelligence of his death about the evening, hurried into the senate-house in the night, and heaped upon him after his death even more expressions of good will and commendation, than they had uttered when he was alive and present among them. He was enrolled among the gods.
 
 ### XXIII
 
-DOMITIAN next received the imperial dignity, the younger brother of Titus, but more like Nero, or Caligula, or Tiberius, than his father or brother. In the commencement however of his reign he used his power with moderation; but, soon proceeding to the greatest excesses of licentiousness, rage, cruelty, and avarice, he provoked such universal detestation, that he effaced the remembrance of his father's and his brother's merits. He put to death the most distinguished of the senate. He was the first that required to be addressed as Lord and God; and he suffered no statue to be erected to him in the Capitol except of gold or silver. He put his own cousins to death. His pride also was execrable.
+(1) DOMITIAN next received the imperial dignity, the younger brother of Titus, but more like Nero, or Caligula, or Tiberius, than his father or brother. In the commencement however of his reign he used his power with moderation; but, soon proceeding to the greatest excesses of licentiousness, rage, cruelty, and avarice, he provoked such universal detestation, that he effaced the remembrance of his father's and his brother's merits.
 
-He made four expeditions, one against the Sarmatians, another against the Catti, and two against the Dacians. On account of the Dacians and the Catti he celebrated a double triumph; for the Sarmatians, he assumed only the laurel. He suffered many disasters however in these wars, for in Sarmatia one of his legions was cut off together with its captain, and by the Dacians Oppius Sabinus, a person of consular dignity, and Cornelius Fuscus, the prefect of the praetorian cohort, were slain, with numerous armies. At Rome he also erected several public buildings, among which were the Capitol, the Forum Transitorium, the Odeum, the Porticus Divorum, the temples of Isis and Serapis, and the Stadium.
+(2) He put to death the most distinguished of the senate. He was the first that required to be addressed as Lord and God; and he suffered no statue to be erected to him in the Capitol except of gold or silver.
 
-But, becoming universally odious on account of his crimes, he was put to death by a conspiracy of his own servants within the palace, in the forty-fifth year of his age, and the fifteenth of his reign. His corpse was carried out with extreme insult by common bearers, and buried ignominiously.
+(3) He put his own cousins to death. His pride also was execrable.
+
+(4) He made four expeditions, one against the Sarmatians, another against the Catti, and two against the Dacians. On account of the Dacians and the Catti he celebrated a double triumph; for the Sarmatians, he assumed only the laurel. He suffered many disasters however in these wars, for in Sarmatia one of his legions was cut off together with its captain, and by the Dacians Oppius Sabinus, a person of consular dignity, and Cornelius Fuscus, the prefect of the praetorian cohort, were slain, with numerous armies.
+
+(5) At Rome he also erected several public buildings, among which were the Capitol, the Forum Transitorium, the Odeum, the Porticus Divorum, the temples of Isis and Serapis, and the Stadium.
+
+(6) But, becoming universally odious on account of his crimes, he was put to death by a conspiracy of his own servants within the palace, in the forty-fifth year of his age, and the fifteenth of his reign. His corpse was carried out with extreme insult by common bearers, and buried ignominiously.
 
 ### Notes
 
