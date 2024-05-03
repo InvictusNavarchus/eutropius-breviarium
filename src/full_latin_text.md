@@ -1284,7 +1284,9 @@ Regulus Sent to Rome to Solicit Peace, 250 BCE
 
 ### Chapter 11: Claudius Emperor, 268 – 270 CE 
 
-(1) Ita Galliēnō rem pūblicam dēserente Rōmānum imperium in Occidente per Postumum, per Odenāthum in Oriente servātum est. Galliēnus intereā Mediōlānī cum Valeriānō frātre occīsus est imperiī annō nōnō Claudiusque eī successit ā mīlitibus ēlēctus, ā senātū appellātus Augustus. (2) Hīc Gothōs Īllyricum Macedoniamque vāstantēs ingentī proeliō vīcit. Parcus vir ac modestus et iūstī tenāx ac reī pūblicae gerendae idōneus, quī tamen intrā  imperiī biennium morbō interiit. Dīvus appelātus est. Senātus eum ingentī honōre decorāvit, scīlicet ut in curiā clipeus ipsī aureus, item in Capitōliō statua aurea pōnerētur. 
+(1) Ita Galliēnō rem pūblicam dēserente Rōmānum imperium in Occidente per Postumum, per Odenāthum in Oriente servātum est. Galliēnus intereā Mediōlānī cum Valeriānō frātre occīsus est imperiī annō nōnō Claudiusque eī successit ā mīlitibus ēlēctus, ā senātū appellātus Augustus.
+
+(2) Hīc Gothōs Īllyricum Macedoniamque vāstantēs ingentī proeliō vīcit. Parcus vir ac modestus et iūstī tenāx ac reī pūblicae gerendae idōneus, quī tamen intrā  imperiī biennium morbō interiit. Dīvus appelātus est. Senātus eum ingentī honōre decorāvit, scīlicet ut in curiā clipeus ipsī aureus, item in Capitōliō statua aurea pōnerētur. 
 
 ### Chapter 12: Quintillus Emperor, 270 CE 
 
